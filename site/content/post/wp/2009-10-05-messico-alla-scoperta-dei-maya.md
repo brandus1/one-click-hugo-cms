@@ -1,0 +1,37 @@
+---
+id: 3423
+title: Messico. Alla scoperta dei Maya
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/10/05/messico-alla-scoperta-dei-maya/
+url: "/?p=3423"
+post_views_count:
+- '15'
+- '15'
+categories: "['VIAGGI']"
+tags: "['vacanze']"
+---
+
+Fu una delle civiltà più evolute dell’epoca pre-colombiana, caratterizzata dallo sviluppo di importanti centri cerimoniali il cui simbolo è per tutti il tempio a forma di piramide a gradoni: i Maya. Polo di attrazione turistica, questa cultura sorprende ed attrae migliaia di visitatori ogni anno, impazienti di tuffarsi in un universo cosmogonico.
+
+In Messico la Cultura Maya si sviluppa su un area di 241.784 km2, una cultura tutt’oggi viva, dal momento che esistono ancora dei discendenti diretti di questa popolazione che in realtà non è mai scomparsa: milioni di persone con queste origini vivono nel territorio, e in molti casi parlano alcune delle lingue Maya. La cultura Maya si formò e fiorì anche nell’attuale Stato di Campeche, in cui si trovano importanti zone archeologiche e 17 gruppi etnici Maya, divisi in diverse comunità, che ancora conservano la propria lingua madre, i costumi e le tradizioni millenarie. Campeche è il sesto stato messicano che annovera due siti dichiarati Patrimonio Culturale dell’Umanità, un titolo che porta a 23 il numero di siti che in Messico vantano questo riconoscimento (il numero più alto tra i Paesi latinoamericani).  
+La grandezza di questa civiltà si riflette nelle imponenti costruzioni sorte nel Preclassico medio, nelle enormi e maestose capitali come Chichén Itzá (recentemente nominata una delle sette meraviglie del mondo), o in quelle del periodo Classico: Tikal, Quiriguá (dichiarate Patrimonio dell’Umanita dall’Unesco rispettivamente nel 1979 e nel 1981).  
+Tra le principali innovazioni di questa civiltà ci fu la concettualizzazzione, in America, dello zero. Essi inoltre calcolarono l’orbita di Venere, navigarono per entrambi gli oceani e costruirono maestosi monumenti, eloquenti testimonianze del loro glorioso passato; interpretarono i movimenti degli astri attraverso dei veri e propri osservatori e crearono un calendario più preciso di quello che utilizziamo attualmente. Chiamato “haab”, constava di 18 mesi da 20 giorni, più un periodo di cinque giorni infausti o di mala sorte, detto “wayeb”, con il quale si completavano i 365 giorni che impiega la terra a girare intorno al sole. Furono grandi astronomi, come dimostrato dai loro precisi calcoli che permisero di costruire a Chichén Itzá, località dello Stato dello Yucatán nominata Patrimonio dell’Umanità nel 1988 e Meraviglia del mondo nel 2007, una piramide conosciuta come il “Castello” con funzione di enorme orologio, sulla cui scalinata un’ombra disegna la divinità del serpente piumato (Kukulkán) nel momento in cui la terra modifica il suo asse di rotazione durante l’equinozio (21 marzo e 22 settembre).
+
+Tra le località da non perdere bisogna annoverare Valladolid. Fondata nel 1543 e conosciuta come “La Perla dell’Oriente”, è una città che offre grande ospitalità ed inorgoglisce lo Yucatán per la sua ricchezza di storia. La principale attrazione è il convento francescano, santuario della Vergine dell’Immacolata Concezione, risalente al XVI secolo e costruita da Frate Diego de Landa sulla piramide di Pop-Pol-Chac.
+
+Imperdibile anche l’Antica Città Maya di Calakmul, situata nell’omonima Riserva della Biosfera, che il 27 giugno del 2002 è stata dichiarata Patrimonio dell’Umanità. La grandezza di questa città preispanica è accresciuta anche dal fatto di essere circondata dal secondo “polmone” più grande d’America e dalla foresta tropicale più grande del Messico. I suoi 723.185 ettari sono però solo alcune delle motivazioni che hanno portato a questo riconoscimento.
+
+A Xpuhil, situata all’inizio della Provincia, si trova un particolare edificio a tre torri; quella centrale mostra ancora oggi un’immagine del dio sole che tutte le sere scruta l’orizzonte verso il tramonto.
+
+Una delle più grandi eredità universali della cultura Maya è rappresentata infatti proprio dallo stile architettonico, che si può ritrovare intatto in siti archeologici come quelli dello Stato del Chiapas. In questa zona gli insediamenti pre-ispanici risalgono a 7000 anni fa. Quando, nel XVI secolo, gli spagnoli arrivarono nel territorio dell’attuale Chiapas, incontrarono una grande resistenza da parte degli abitanti del luogo che, secondo la credenza, preferirono gettarsi nel Canyon del Sumidero piuttosto che essere sottomessi agli invasori.
+
+Il Parco Nazionale Canyon del Sumidero ha un’estensione di 21.789 ettari; le impervie pareti del canyon, ricoperte da una folta vegetazione, raggiungono altezze di 1.000 metri, creando aree dai microclimi differenti. Recenti scavi archeologici hanno inoltre dimostrato che in questa regione costiera nacque la cultura più antica della Mesoamerica: la mokaya. Attorno al 1500 a.C. i suoi abitanti già coltivavano mais, vivevano in case e producevano terracotta. Si pensa che con il loro mescolarsi con le posteriori migrazioni abbia dato origine al popolo Maya, lasciando i propri maggiori insediamenti incastonati nelle bellezze naturali, che dal 300 in poi furono la base per la costruzione delle grandi edificazioni Maya di Palenque, Bonampak, Yaxchilán, Toniná, Tenám, e Chinkultic.
+
+Un’altra località ideale per incominciare un percorso nella Cultura Maya è Tabasco, che, situata a sud del Golfo del Messico, è considerata per la sua ubicazione la porta d’ingresso al Mondo Maya. Lo Stato offre siti archeologici importanti, da La Venta, a Comalcalco (nonostante non sia l’unica città Maya costruita con mattoni di fango cotto, è l’unico abitato Maya fatto di questi materiali che sia stato restaurato e reso accessibile al pubblico), a Pomoná e Reforma nel comune di Tenosique (confinante con il Guatemala).
+
+Infine lo Stato di Quintana Roo. La città di Chetumal, fondata dai marinai, è la capitale e porta d’ingresso dell’America Centrale in Messico. Ad Isla Mujeres vi si trova il tempio di Ixchel (dea della fertilità), che fu dichiarato dai Maya “luogo sacro” per l’adorazione della dea. Il nome Isla Mujeres le fu attribuito nel 1517, quando la spedizione spagnola di Francisco Fernandez di Cordoba scoprì l’isola ritrovando un santuario con la figura della dea Ixchel e il suo seguito di ancelle.
+
+Per quanto riguarda la cucina, si possono ancor oggi trovare influenze Maya nella gastronomia di quella zona. Grande diffusione ha infatti la varietà di piatti preispanici e indigeni, tra i quali degno di nota è il pejelagarto (si tratta di una specie strana con corpo di pesce e muso di lucertola) che solitamente si gusta arrostito o in ‘chirmol’, una specie di salsa o mole preparato con pastella, semi di zucca ed epazote, con cui si accompagnano i bocconcini di pesce. Altri piatti tipici sono la torta di iguana, gli ostiones alla brace, il pane di banane, la tortilla di cocco o il dolce di papaya con zapote e, naturalmente, il Cioccolato. A questo proposito Tabasco offre come attrazione turistica la Ruta del Chocolate, un itinerario attraverso il quale si può degustare la esotica gastronomia dei piatti preispanici ed indigeni. L’itinerario è formato da moltissimi ristoranti di cucina locale, nei quali si può provare il famoso pejelagarto, tipico dello Stato di Tabasco. Si possono inoltre visitare le comunità Maya-Chonal, dove ancor oggi si conservano usi e costumi degli antenati.
+
+**L.D.S.**

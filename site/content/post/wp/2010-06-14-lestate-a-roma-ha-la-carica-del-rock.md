@@ -1,0 +1,21 @@
+---
+id: 2676
+title: L ?estate a Roma ha la carica del rock
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2010/06/14/lestate-a-roma-ha-la-carica-del-rock/
+url: "/?p=2676"
+post_views_count:
+- '9'
+- '9'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+Arriva l’estate ed è tempo di rock nella capitale. Riaprono i battenti dell’Ippodromo di Capannelle, che anche quest’anno, a luglio ospita uno dei festival più attesi dagli amanti della musica nostrana ed internazionale: “Rock in Roma”. L’evento ha inizio il 5 e si concluderà il 30 , e come ogni anno, la scaletta accontenta proprio tutti, dai seguaci del raggae e del pop, agli estimatori del rock ever green.  
+A chiudere la rassegna lo scorso anno è stato il cantautore romano Daniele Silvestri che si ripresenta, ma accompagnato dall’orchestra di Piazza Vittorio, e passa il testimone per l’apertura ai Cramberries che dopo 7 anni di separazione ripartono per il reunion tour, naturalmente con la loro storica leader Dolores O’Riordan, che dopo il suo ultimo successo estivo “The Jorney” decide di ritornare insieme agli altri membri: nella scaletta oltre ai grandi successi che hanno fatto la storia della band irlandese anche alcuni brani da solista. Un altro tour di reunion è quello delle Skunk Anensie, la carismatica cantante Skin dopo la sua carriera da solista come dee jay, riparte con la vecchia formazione e presenta ai suoi fans il nuovo album in studio “Smashes and Trashes”. E’ chiaro che in atmosfera di ricongiungimenti non potevano mancare i Litfiba, discussi, attesi, chiacchierati, ma che hanno riempito stadi da quando hanno compreso, ahimè, che una carriera da solisti non sarebbe durata a lungo. Renzulli e Pelù infatti raddoppiano le date per i loro fans e arrivano sul palco del rock in Roma il 22 luglio.   
+Largo anche al rock indipendente italiano, che si aggiudica ben due date nella manifestazione. I rappresentanti di questa edizione saranno il 14 i Baustelle, in testa alle classifiche con il successo “Gli spietati” estratto dal loro ultimissimo album“ I mistici dell’occidente”, seguiti il 21 dagli Afterhours , gruppo leader del genere indie in Italia, che da anni raccoglie consensi dalla critica, in casa e all’estero. Ma facendo un passo indietro c’è una new entry della scena musicale nostrana: la debuttante festivaliera Nina Zilli, aprirà il concerto dei Baustelle. La giovane, che dai lineamenti ricorda la trasgressiva Amy Winehouse, è stata subito ben accolta in questo ambiente e per di più con molte approvazioni, stranamente già stategli riconosciute a Sanremo che da qualche anno sembra privilegiare esclusivamente personaggi da format.  
+Tra intermezzi più pop che rock, che vedono protagonisti, Mika, i Gossip con la loro formosa leader Beth Ditto, e un po’ di Ska firmato 99 Posse e Ska P, l’Ippodromo di Capannelle ospita grandi star internazionali che hanno scritto la storia e del rock e fatto sognare tante generazioni. Addirittura c’è chi sarà a Roma per la prima come Gary Moore, genio della chitarra, riconosciuto come ispiratore da grandi chitarristi come Kirk Hammet dei Metallica e il tanto rimpianto e da poco scomparso Randy Rhoads memorabile chitarrista dei Black Sabbath. Per la prima data in Italia arrivano anche le tre lunghe barbe texane dei ZZ Top che faranno ballare la folla con un personalissimo rock &amp; blues. A seguire, il 28 luglio per un’unica data tutta italiana, si esibiscono The Cult con il loro rock psichedelico e goth primordiale.  
+Ma a chiudere l’evento sarà un nome che non ci aspettavamo, che forse ha fatto storcere il naso a chi si immaginava una chiusura più dark e rumorosa. A far saltare l’Ippodromo romano ci sarà Shaggy, che forse non sarà il massimo per i sostenitori più irremovibili del vero rock, ma ha completamente sbancato i botteghini del Festival di Capannelle.  
+Considerata la ricchezza delle serate e soprattutto la qualità dei nomi presenti, il Rock in Roma si appresta ad essere il protagonista delle notti romane, ed allestisce spazi per cinema sport e letteratura e prima e dopo i concerti si balla al ritmo di dee jay in console.
+
+**Roberta Cesari**

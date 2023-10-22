@@ -1,0 +1,24 @@
+---
+id: 2910
+title: Io sono Li di Andrea Segre, vince il Titano D ?Oro al Festival di San Marino
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2012/12/17/io-sono-li-di-andrea-segre-vince-il-titano-doro-al-festival-di-san-marino/
+url: "/?p=2910"
+post_views_count:
+- '11'
+- '11'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+**San Marino – Lo sguardo immobile della laguna veneziana vince il Titano d’Or**o al Festival di San Marino. Io sono Li, film di Andrea Segre, sulla vita “difficile” di una mamma cinese che per riabbracciare suo figlio, prima confeziona camicie nella periferia di Roma e poi si trasferisce a Chioggia dove conosce il pescatore-poeta slavo Bepi, con il quale impara l’impara l’italiano e gli italiani, scontrandosi contro il pregiudizio della gente. Ma loro, due estranei in terra straniera, seppur divisi bruscamente dalle loro comunità, continueranno a parlare la stessa lingua: l’amore e il rispetto per gli “altri”. Un film necessario che illustra la difficoltà di essere italiani in un paese sempre più “vario. La giuria capitanata da Pupi Avati non avuto dubbi sull’assegnare il premio ad Andrea Segre “in quanto il cinema deve andare oltre i pregiudizi e oltre le singole comunità che convivono nel nostro paese”. Un giusto riconoscimento che sancisce il finale di questo piccolo festival molto “familiare” e molto “anticonvenzionale”.
+
+**“Il festival di San Marino” ha dichiarato Pupi Avati** “nasce come buon auspicio per i giovani cineasti che sono (o potrebbero essere) il futuro del cinema”. Ed infatti, anche alla luce degli altri premi assegnati, il nuovo cinema italiano potrebbe proprio ripartire da qui. Il premio alla miglior regia è andato a Pippo Mezzapesa per il film “Il Paese delle Spose Infelici”, mentre il premio al miglior attore è andato a Luca Zingaretti, per la piccola rivelazione “La Kryptonite nella borsa”. Il premio come migliore attrice è andata a Laura Morante per l’Appartamento ad Atene di Ruggero Dipaola. Il miglior documentario è stato “Il Mundial dimenticato” di Lorenzo Garzella e Filippo Macellonio. Giusto riconoscimento per un prodotto che ha fatto luce su uno dei più misteriosi (e dimenticati) eventi calcistici avvenuti nel 1942 in Argentina, proprio nello stesso periodo in cui in Europa si consumava il grande macello della seconda guerra mondiale. Mentre la giuria del Premio Tonino Guerra per la sceneggiatura ha assegnato il premio al film interpreto da Lucia Bosè Alfonsina y el mar di Davide Sordella e Pablo Benedetti.
+
+**“I premi assegnati dimostrano che qualcosa si “muov**e”, nell’immobilismo culturale italiano.” Ha chiosato Avati, non rinunciando però a denunciare la stagnazione del nuovo piccolo cinema italiano che a fatica cerca uno spazio degno di questo nome. “ Quel poco cinema italiano di qualità, quest’anno non avrà la fortuna che merita. Non è una questione di distribuzione, ma dell’esercizio che lo manovra. Ormai un film è segnato fin dal primo giorno: se non guadagna viene automaticamente cancellato. Il sistema del passaparola non funziona più. E se funziona, lo è per poco.” Avati ha anche sottolineato che i Festival ormai sono solo vetrine e non servono più come cassa di risonanza. “E’ triste dirlo ma i film che vincono una Palma, un Leone, un Orso e perfino un Marco Aurelio non aiutano il cinema. Gli autori sconosciuti restano tali in quanto i loro film arrivano in sala in ritardo di mesi, quando ormai il richiamo mediatico è terminato. Inoltre bisogna anche capire che lo scarico illegale di film dalla rete ha portato un allontanamento del pubblico dalle sale. Gli autori, distributori ed esercenti dovrebbero cercare di pensare ad un modo nuovo di usufruire il cinema. Non so come, ma bisogna saper guadare avanti: le nuove tecnologie potrebbero essere una risorsa, non un “nemico” da combattere”.
+
+**Di contro il direttore del festival Romeo Conte** ha messo in chiaro che lo spirito del San Marino Film Festival è quello di avvicinare il pubblico al cinema. “Il senso di questa manifestazione è che non si chiude con l’assegnazione dei premi. Ma da oggi, a luci della ribalta spente, per i prossimi tre mesi porteremo in giro i quattro film vincitori in sale selezionate portando davvero il cinema alla gente”. Un’iniziativa interessante che dovrebbe essere copiata in futuro da altri piccoli festival che con poco cercano davvero da dare una visibilità degna al cinema indipendente. Italiano o straniero che sia.
+
+**Il Festival di San Marino tornerà l’anno prossimo** nello stesso periodo dal 9 al 14 Dicembre. Sempre che non venga anticipato di un mese. Gli organizzatori avranno un anno di tempo per pensarci. Noi di aspettare.
+
+di **Roberto Leggio**

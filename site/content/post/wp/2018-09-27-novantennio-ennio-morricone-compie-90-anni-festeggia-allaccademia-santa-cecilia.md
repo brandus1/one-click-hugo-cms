@@ -1,0 +1,19 @@
+---
+id: 9770
+title: "Novant\u2019ennio: Ennio Morricone compie 90 anni e festeggia all\u2019Accademia\
+  \ di Santa Cecilia"
+author: Redazione
+type: "post"
+guid: http://progressonline.it/?p=9770
+url: "/?p=9770"
+colormag_page_layout:
+- default_layout
+categories: "['CULTURA E SPETTACOLO']"
+tags: "['Morricone', 'Morricone concerto Roma', 'Morricone Roma']"
+---
+
+![](https://progressonline.it/wp-content/uploads/2018/09/ennio-morricone-300x200.jpeg)La grande festa per celebrare i novant’anni di **Ennio Morricone** è iniziata giovedì 27 settembre nel foyer della sala Santa Cecilia dell’Auditorium Parco della Musica dove intorno a Morricone si sono riuniti il Presidente Sovrintendente dell’Accademia Nazionale di Santa Cecilia **Michele dall’Ongaro**, il Direttore Generale di SIAE **Gaetano Blandini**, il Premio Oscar **Nicola Piovani** e **Annalisa Bini** Direttore responsabile delle Attività Culturali di Santa Cecilia. Tutti insieme per presentare una mostra fotografica di Musacchio&amp;Ianniello, una mostra di costumi originali realizzati dalla **Sartoria Tirelli** ora facenti parte della collezione della **Fondazione Tirelli Trappetti** e un volume – realizzati con il contributo di SIAE – dedicato alla lunga carriera di Morricone che, come ha detto **Michele dall’Ongaro** – Presidente Sovrintendente dell’Accademia Nazionale di Santa Cecilia, “raccoglie contributi che mettono a fuoco l’artista e l’uomo nelle sue diverse sfaccettature, raccontando una storia che attraversando diversi decenni racconta anche la storia del cinema e indirettamente quella italiana. L’Accademia Nazionale di Santa Cecilia è quindi molto orgogliosa di festeggiare i novant’anni di Ennio Morricone, Accademico dal 1996 che è non solo il compositore più noto, ma anche l’italiano più conosciuto e amato in tutto il mondo”.![](https://progressonline.it/wp-content/uploads/2018/09/vQqAwszw-300x200.jpeg)
+
+Consegnando a **Morricone** una targa in ricordo del deposito della sua prima partitura, **Gaetano Blandini** Direttore Generale SIAE ha detto: “Grazie a SIAE ho il privilegio di poter essere oggi qui, seduto tra due icone della musica, il Maestro Morricone e il Maestro Piovani. Ennio è con noi in SIAE da 72 anni, perché sa che la Società difende la libertà degli autori, e anche degli editori. Anche se, come dice sempre lui, senza gli autori gli editori non esisterebbero. Quando ha fatto il suo primo deposito in SIAE aveva 18 anni, e oggi ci sembrava il regalo più bello una targa che ricordasse quella prima opera depositata, intitolata “Le rimembranze”.
+
+Piacevolmente sorpreso il **Maestro Morricone** ha affermato che “questa è un’opera che non esiste più, io l’ho strappata. L’avevo scritta a 18 anni e poi sono cresciuto, e molte cose le ho rinnegate. Quindi adesso esiste grazie a voi. Devo ringraziare quindi l’Accademia di Santa Cecilia e SIAE. Sono commosso e se continuo mi metto anche a piangere. Questo mio lavoro in genere è nascosto, il compositore esiste perché qualcuno lo ascolta”. **Nicola Piovani**, seduto alla destra di Morricone ha raccontato la nascita di Candeline, il brano dedicato a Morricone che egli stesso eseguirà questa sera in concerto insieme all’Orchestra e al Coro di Santa Cecilia: “in occasione dei 70 anni di Morricone la *Luc* mi commissionò un piccolo brano per quartetto d’archi, e io ho scritto *Candeline*, un contrappunto tra *Per un pugno di dollari* e *Tanti auguri a te*. Dieci anni dopo, per gli ottanta, l’ho sviluppato per orchestra sinfonica. Per i novanta eseguiremo una versione con il coro. Da domani iniziamo a preparare quella con i cantanti solisti per i 100 anni”.

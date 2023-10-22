@@ -1,0 +1,26 @@
+---
+id: 2478
+title: A Cannes, mezzo secolo fa la nouvelle vague
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/05/21/a-cannes-mezzo-secolo-fa-la-nouvelle-vague/
+url: "/?p=2478"
+post_views_count:
+- '1'
+- '1'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+<font face="Tahoma, sans-serif"><font size="2">Sono passati cinquant’anni da quando un fermo immagine ha cambiato il linguaggio – e la storia – del cinema. La scena finale del film I quattrocento colpi di François Truffaut, con il protagonista Antoine Doinel – interpretato da Jean-Pierre Lèaud – che riesce a scappare dal riformatorio fuggendo verso il mare, è uno dei simboli della nouvelle vague, il movimento cinematografico francese nato sul finire degli anni ’50 che si impose all’attenzione della critica internazionale proprio con il film di Truffaut. I quattrocento colpi, <span style="font-style: normal">il primo lungometraggio del regista,</span> fu presentato in concorso alla dodicesima edizione del Festival di Cannes e fu premiato con il Gran premio speciale della giuria per la regia. Grazie al successo di questa pellicola, la nouvelle vague perse il carattere di cinematografia underground attirando gli investimenti di molti produttori che, progressivamente, ne snaturarono l’identità. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">I film manifesto di questa nuova corrente cinematografica sono, oltre al capolavoro di Truffaut, Le beau Serge e I cugini di Claude Chabrol, e Fino all’ultimo respiro di Jean Luc Godard – che lanciò definitivamente uno dei volti-simbolo della nouvelle vague, ovvero Jean-Paul Belmondo – tutti usciti tra il 1958 e il 1960. A questi tre registi si possono aggiungere Alain Resnais, autore del celebre Hiroshima mon amour<span style="font-style: normal">, Jacques Rivette ed Eric Romher, tutti provenienti, ad eccezione di Resnais, dalle pagine dei Cahiers du cinéma, la bibbia della critica cinematografica i cui articoli formano il quadro teorico della nouvelle vague.</span></font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Assieme al neorealismo italiano, la nouvelle vague rappresenta uno dei pilastri della settima arte in Europa, in opposizione alle faraoniche produzioni hollywoodiane degli anni precedenti la seconda guerra mondiale. Non a caso, uno dei maestri ispiratori di questi registi francesi è stato proprio Roberto Rossellini (un autore “anti-hollywoodiano” come lo definisce lo stesso Truffaut). Entrambi i movimenti hanno avuto il merito di cogliere la realtà in cui venivano girati con un approccio documentaristico. Le pellicole di queste due correnti si presentano come degli instant movie capaci di riflettere, nel primo caso, la sofferenza del popolo italiano piegato dalla guerra e la sua voglia di ricominciare e, nel secondo, l’inquietudine e l’irrequietezza delle nuove generazioni francesi, nonché un nuovo modo di vedere il cinema stesso, in aperto contrasto con il cinema tradizionale, ribattezzato ironicamente “cinema di papà”.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2"><span style="font-style: normal">Nelle analisi critiche dei Cahiers, si legge che il linguaggio e lo stile cinematografico avrebbero dovuto rispecchiare la soggettività del regista: la macchina da presa è l’equivalente della penna stretta nel pugno dello scrittore. I film che rientrano nel solco della nouvelle vague gettano uno sguardo intimo su temi universali come l’amore, il rapporto con le donne, la gaiezza della gioventù,</span><span style="font-style: normal"><span style="background: none transparent scroll repeat 0% 0%"> il contrasto con le istituzioni</span></span><span style="font-style: normal">, che suscitano facilmente l’identificazione con i protagonisti delle storie. Le storie sembrano una emanazione diretta del diario personale del regista. I film sono girati con pochi mezzi, anche grazie alle innovazioni tecniche del periodo (registratori portatili e cineprese 16 mm), addirittura, per alcune scene, nelle case degli stessi registi, per strada, con la luce naturale del giorno, senza artifici scenografici. </span></font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">I quattrocento colpi<span style="font-style: normal"> di François Truffaut rappresenta metaforicamente lo spirito della nouvelle vague. Il protagonista, Antoine, è un ragazzino tredicenne svogliato, allergico alle istituzioni e allo studio, incompreso e mal-trattato dalla madre e dal patrigno. Dopo l’ennesima malefatta, viene rinchiuso in un riformatorio da cui riesce ad allontanarsi scappando verso la spiaggia. Il rifiuto delle regole e l’evasione dal dover-essere di Antoine è la stessa reazione di rottura con il cinema tradizionale di Truffaut e degli altri registi della nouvelle vague. D’altronde, lo stesso Truffaut in una intervista ad una radio canadese nel 1972 ha ammesso che la pellicola è in gran parte autobiografica: così come Antoine marina la scuola e si rifugia nei cineforum parigini, il quindicenne Truffaut trascorreva i lunghi pomeriggi del sabato nel Club de Faubourg a discutere di cinema. </span></font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">**Vito Miraglia**</font></font>
+
+<font size="2">(Nella foto una scena del film I quattrocento colpi)</font>

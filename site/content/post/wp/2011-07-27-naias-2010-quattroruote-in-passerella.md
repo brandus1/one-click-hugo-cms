@@ -1,0 +1,14 @@
+---
+id: 3751
+title: NAIAS 2010, quattroruote in passerella
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2011/07/27/naias-2010-quattroruote-in-passerella/
+url: "/?p=3751"
+post_views_count:
+- '20'
+- '20'
+categories: "['AUTO']"
+---
+
+<div>Il salone di Detroit apre le porte. Un buttafuori ha già cacciato via la crisi e fatto entrare solo chi, di fiducia, ne ha da vendere. E oltre la fiducia, le proprie automobili. Il 2009 è infatti stato un anno devastante per l’industria a stelle e strisce, tra il sorpasso dell’altra superpotenza in ascesa, la Cina, e la quasi bancarotta di alcune aziende storiche, quali General Motors e Chrysler. Solo l’intervento statale, allora, salvò per un pelo la prima, mentre servì invece il sostegno tecnologico della nostrana Fiat per la seconda. </div><div>Le premesse di questa 22esima edizione internazionale del Naias (North American International Auto Show) sono dunque queste. Speranza e grande spettacolo, in vista di una ripresa nel 2010. Stampa e operatori del settore sono già con le penne in mano, mentre gironzolano tra novità esposte e anteprime mondiali. Il pubblico invece, potrà ammirare i lucenti oggetti del desiderio dal 16 al 24 gennaio. Gli addetti ai lavori confidano nelle visite; e si augurano che sia superato il record negativo delle 650 mila unità del Naias 2009, in calo rispetto alle oltre 700 mila delle edizioni precedenti. </div><div> </div><div>Saranno una quarantina le primizie messe in mostra, tra brand variegati, nordamericani e mondiali. Grandi protagoniste, comunque, saranno le tedesche, con le presentazioni della nuova Audi A8 e della variante sportiva sDrive 35is Roadster Z4 BMW; la casa bavarese annuncerà anche la sua prima sperimentazione elettrica come marchio (il Gruppo l’aveva già collaudata con la Mini E): è la Concept ActiveE, ad emissioni zero. C’è trepidazione anche per la Mercedes Classe E Cabrio, per la Volkswagen Jetta e per il suo nuovo Touareg. </div><div>Ma le case locali non saranno certamente da meno. Ford lancerà a Detroit la Focus studiata per il mercato statunitense, mentre GM, aggrappandosi alla Chevrolet, tenterà di risalire la china con Camaro, Cabrio, Aveo, Orlando Spark e Malibu,oltre a un apprezzabile modello Cadillac. </div><div> </div><div>Detroit darà anche un chiaro segnale ai tempi che corrono. Sono infatti stati allestiti 3.400 metri quadrati di area espositiva interamente dedicata all’alimentazione alternativa e varianti elettriche. Lo spazio è stato chiamato “Electric Avenue” e punterà i fari su circa venti prototipi verdi. Chissà che non sia un buon passo verso la sensibilizzazione definitiva. </div><div> </div><div>**Dario Campagna**</div><div> </div><div>[**www.naias.com** ](https://www.naias.com)</div><div> </div><div>(Nella foto la nuova BMW Concept ActivE)</div>

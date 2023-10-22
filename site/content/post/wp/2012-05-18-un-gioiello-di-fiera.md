@@ -1,0 +1,24 @@
+---
+id: 2332
+title: Un  ?gioiello ? di Fiera
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2012/05/18/un-gioiello-di-fiera/
+url: "/?p=2332"
+post_views_count:
+- '19'
+- '19'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+**“Dai diamanti non nasce niente” cantava Fabrizio De Andrè.** Eppure, che sia per sempre o no, un diamante, come qualsiasi altro gioiello, costituisce sempre un monumento perenne di stile, d’eleganza e identità, volto a celebrare spesso il sentimento di qualcuno, disposto a rimanerci dentro, mostrandoci ogni giorno la sua rara luce.  
+Sembra abbastanza triste, oltre che fuori luogo, parlare di lusso e di gioielli in un panorama, come quello attuale, in cui si muore avocando un posto di lavoro. Tuttavia, lungi dal voler fare inutile moralismo o semplicemente spicciola retorica, guardiamo alla bella, poderosa iniziativa che si terrà dal 19 al 23 maggio e che vedrà la partecipazione di circa 1.300 espositori di 32 Paesi rappresentanti, buyers provenienti da oltre 70 nazioni che spazieranno all’interno di una superficie espositiva di 25 mila metri quadri. Vetrina dell’appuntamento la città di Vicenza, «punto di riferimento planetario per il settore orafo con i nomi di maggior rilievo ed eventi di prestigio internazionale» ha spiegato Roberto Ditri Presidente di VicenzaOro e amministratore delegato di Marelli Motori. Questa edizione di maggio (le altre due sono previste a gennaio e a settembre) assisterà ad eventi molto particolari, quali il World Jewellery Forum, organizzato da Fiera di Vicenza in collaborazione con World Diamond Council, organizzazione che rappresenta le industrie del gioiello e della lavorazione dei diamanti, e CIBJO, la Confederazione mondiale della gioielleria, che riunisce a Vicenza, dal 13 al 20 maggio, i maggiori rappresentanti del mondo della gioielleria e del diamante di oltre 40 Paesi. Occasione storica per la città che vedrà sfilare, sul red carpet allestito per l’occasione, dirigenti delle Nazioni Unite e personalità di rilievo che scambieranno pareri su temi importanti. Particolarmente significativo sarà il momento dell’assegnazione degli Oscar della gioielleria, il Premio Andrea Palladio International Jewellery Awards 2012, dedicato alle eccellenze del gioiello internazionale, considerato nelle sue diverse accezioni di progetto, produzione, distribuzione, retail e comunicazione. Ma ci sarà spazio anche per i giovani designer, grazie al concorso «Next Generation- Jewellery Talent Contest 2012», dedicato agli under 30.
+
+**Spiega Franco Cologni, amministratore Compagnie Financière Richemont International SA,** l’uomo che ha contribuito, in questi decenni al nuovo successo di Cartier: «Per me il gioiello è un’espressione inconsapevole di cultura, compresa la cultura di un lavoro portato avanti a regola d’arte. Rappresenta molto di più di un semplice ornamento: è un’espressione di personalità, d’identità, di emozione». Silvana Annichiarico, direttrice del Triennale Design Museum, ricorda la scena del film Colazione da Tiffany in cui Audrey Hepburn, con lo sguardo perso tra le ammiccanti vetrine della gioielleria, dice: «Non voglio possedere nulla finché non trovo un luogo dove io e le cose stiamo bene insieme». Un gioiello, dunque, costituisce parte integrante del proprio corpo, contribuendo, secondo la Annichiarico, a definirne l’identità.  
+«Il gioiello è un oggetto difficile perché esiste una contraddizione tra l’anima stessa del design e l’inveterata abitudine a interpretarlo come una pura espressione di lusso. Io penso invece che si debba risalire alla tradizione latina, dove il gioiello non è considerato simbolo di ricchezza ma segno antropologico, espressione delle virtù umane, della fortuna, della bellezza» afferma il designer Andrea Branzi.   
+VicenzaOro investe sull’artigianato italiano in cui “bello” e “ben fatto” coincidono, invitandone i protagonisti a mettere sul mercato i progetti dei 20 premiati. Per Gianmaria Buccellati, autorevole nome e presidente del Premio Andrea Palladio, il gioiello costituisce l’emblematica espressione della bellezza femminile.
+
+**Una bellezza incontaminata, quella di un diamante,** che racchiude, spesso, al suo interno storie di lacrime e sangue, versate da conflitti esplosi intorno ai percorsi battuti dalle pietre preziose. Anche da questo punto di vista Vicenza sarà, in questa occasione, il centro nevralgico di un cammino di legalità che comincia a far maturare i suoi frutti e che si propone come obiettivo un mercato di diamanti “conflict free”.  
+Se la produzione di gioielli è l’uso più antico che l’uomo ha fatto dal metallo, indubbiamente l’arte orafa ha davvero fatto tanta strada.
+
+di **Samantha De Martin**

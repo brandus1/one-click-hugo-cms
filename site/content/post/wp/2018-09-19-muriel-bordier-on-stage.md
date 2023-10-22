@@ -1,0 +1,24 @@
+---
+id: 9687
+title: MURIEL BORDIER On stage
+author: Redazione
+type: "post"
+guid: http://progressonline.it/?p=9687
+url: "/?p=9687"
+colormag_page_layout:
+- default_layout
+categories: "['CULTURA E SPETTACOLO']"
+tags: "['fotografia', 'mostra fotografica roma', 'mostre fotografiche roma', 'Muriel Bordier', 'Muriel Bordier mostra', 'Muriel Bordier mostra Roma', 'Muriel Bordier Roma', 'Piazzadispagna9']"
+---
+
+La stagione artistica 2018-2019 del Boutique Hotel &amp; Art Gallery “Piazzadispagna9” di Stefania Grippo **si apre il 3 ottobre** prossimo con l’inaugurazione **della mostra personale della fotografa francese Muriel Bordier** dal titolo “*On stage*” .
+
+Si tratta della **prima mostra italiana** della pluripremiata artista di Rennes, curata da Raffaella Salato, con la collaborazione della storica dell’arte Patricia Bonfils, a coronamento di una serie di personali e collettive che spaziano dalla Francia, alla Polonia, alla Spagna, al Portogallo, alla Turchia, fino ad approdare negli Stati Uniti. **Il progetto espositivo è incentrato su tre serie fotografiche** – *Espaces Muséaux, Open Space* e *Les Thermes*, realizzate tra il 2010 ed il 2015 – facenti parte di un progetto più globale che mira a ricostruire un’intera città scegliendo gli scenari più significativi, evocativi o peculiari in cui si dipana la vita quotidiana della società occidentale del Terzo Millennio.
+
+Muriel Bordier, diplomata in Fotografia all’Accademia di Belle Arti di Reims, interpreta il mondo che la circonda con un approccio quasi metafisico e con una spiccata predisposizione alla parodia, il tutto filtrato attraverso un’attitudine innata all’analisi antropologico-culturale dell’individuo contemporaneo. La Bordier costruisce, con cura quasi maniacale e grande senso estetico, set fotografici particolareggiati in cui dispone vere comparse (uomini e donne senza identità definite) per creare *tableaux vivants* che poi immortala, dando vita a scene curiose ed ironiche in cui è possibile ravvisare certe stravaganze (quando non addirittura devianze) dell’odierna società. Al di là dei soggetti in esse ritratti, **che raccontano ciascuno un microcosmo con le sue regole** – a volta assurde o anche ridicole – e le sue variegate vicende, le opere della Bordier colpiscono per la sapiente gestione degli spazi, dei chiaroscuri e delle prospettive, armonizzati con rara eleganza e un gran senso dell’equilibrio scenico. Attraverso i suoi lavori, l’artista intende esprimere il proprio rapporto con la contemporaneità, e lo fa alternativamente con umorismo e gravità, ma sempre nel segno – scrive Celine Raymond – di una “decostruzione satirica del paesaggio umano”.
+
+La mostra “On stage”, che viene dopo la sontuosa personale dedicata all’arazzo contemporaneo della tedesca Tania Welz, conferma il successo del progetto internazionale d’arte di Stefania Grippo, proprietaria di “*Piazzadispagna9*” di cui è anche l’ideatrice, luogo in cui la sua natura di designer di interni incontra quella di animatrice culturale. Nato nel 2014, questo spazio in cui convergono arte, design, artigianato e moda – che si fregia della magnifica vista su una delle piazze più belle della Capitale e di un’eccezionale cura degli interni – è diventato un punto di riferimento per il pubblico più raffinato, romano e non solo, amante dell’arte contemporanea. **Gli artisti sono selezionati personalmente da Stefania Grippo**, in linea con le più moderne tendenze internazionali, in uno scambio biunivoco – filtrato dalla loro identità e dalla loro ricerca espressiva – tra l’imponente esterno e lo spazio interno dell’hotel.
+
+![](https://progressonline.it/wp-content/uploads/2018/09/19home-300x200.jpg)
+
+“*Piazzadispagna9*”, segnalato da Vogue Living come uno dei *7 hotel di lusso in Italia che vale la pena visitare almeno una volta nella vita*, coniuga l’accoglienza di alto livello all’arte in tutte le sue declinazioni, e non è un caso che l’appartamento nel 1800 fosse di proprietà dell’artista tedesco Franz Catel, che lo rese uno dei salotti artistici più illustri della Capitale.

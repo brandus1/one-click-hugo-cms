@@ -1,0 +1,30 @@
+---
+id: 3839
+title: 'Le novit  di Renault: Il futuro  &#8230; elettrico'
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2010/12/09/le-novit-di-renault-il-futuro-elettrico/
+url: "/?p=3839"
+post_views_count:
+- '17'
+- '17'
+categories: "['AUTO']"
+---
+
+Sarà protagonista al prossimo Motor Show di Bologna la Renault, che in questi mesi sta inanellando un successo dietro l’altro. La nuova Megane Coupè Cabrio, l’allestimento firmato Miss Sixty per Twingo, e la sfida dell’elettrico con il Kangoo ZE, che anticipa un’ampia gamma di auto ad emissioni zero. Un anno importante, quello che si sta chiudendo per Renault. Ne parliamo con Luciano Ciabatti, Direttore Marketing di Renault Italia
+
+**Un fine d’anno molto intenso per Renault, che lancia diversi nuovi modelli sul mercato… Ci può illustrare le novità più importanti di questi ultimi mesi?**   
+Tante novità soprattutto nell’ambito dei prodotti più “aspirazionali”. Tra l’altro abbiamo completato la gamma Megane con l’arrivo della bellissima Megane Coupé Cabrio, che con il suo tetto completamente in vetro, il più ampio della categoria, offre anche da coperta una luminosità senza eguali, e abbiamo lanciato la piccola Roadster Wind, pepatissima e divertente, capace di passare in soli 11 secondi dalla configurazione coupé a quella cabrio, grazie all’esclusivo tetto rigido che ruota per scomparire nel bagagliaio. Ma l’anno finisce con due novità altrettanto belle e divertenti: la Twingo Gordini GT, interpretazione sportivo/chic ad opera della griffe Gordini, quella che in Renault ha sempre significato sport, e la Twingo Miss Sixty, che sfrutta la partnership con il famoso marchio d’abbigliamento e parla ad una donna che vuole distinguersi e non teme nessuna sfida . La presenteremo in esclusiva per il mercato italiano al prossimo Motor Show di Bologna insieme alla sua testimonial d’eccezione: Belen Rodriguez.  
+   
+**Tra le novità, spiccano quelle più legate all’attenzione sempre crescente di Renault per temi come il rispetto dell’ambiente e i risparmi dei consumi. Pensiamo soltanto ad iniziative come il Kangoo elettrico ad emissioni zero…**   
+Il Kangoo ZE, zero emission come lo chiamiamo in Renault, è un’offerta unica nel panorama dei veicoli elettrici. Renault è l’unica casa che ha già preparato un veicolo commerciale elettrico ed è pronta a immetterlo sul mercato a partire dal prossimo anno. Ma la novità non è solo questa perché Renault ne ha già annunciato il prezzo, 20.000 € iva esclusa (senza eventuali incentivi dello stato), che lo colloca in una fascia di prezzo paragonabile a quella delle versioni Diesel. E’ un’offerta che vuole rispondere al doppio obiettivo di rendere accessibile a tutti l’acquisto di un veicolo commerciale a zero emissioni e di migliorare la vivibilità delle nostre città grazie ad un forte abbattimento delle emissioni inquinanti e del rumore.
+
+**Ma tutta la gamma Z.E. rappresenta una novità assoluta nel panorama dell’auto elettrica… che prospettive avete su questo mercato?**   
+Molto interessanti, prima di tutto perché ci presentiamo al mercato con una gamma completa di prodotti a zero emissioni: una grande berlina per la famiglia, la Fluence, una cittadina di circa 4 metri, più o meno come la Clio, che si chiamerà Zoe e arriverà sul mercato all’inizio del 2012, un piccolo quattroruote due posti molto simpatico e moderno adatto ad un uso cittadino che si chiama Twizy e il Kangoo di cui abbiamo parlato prima. Quattro prodotti a zero emissioni capaci di coprire tutte le esigenze del consumatore. Non abbiamo ovviamente la pretesa di pensare che le auto elettriche soppiantino le auto tradizionali benzina o diesel, ma siamo convinti che potranno dare un grande impulso alla soluzione di alcuni problemi come l’inquinamento dei grandi centri urbani, ed in definitiva a migliorare la qualità della nostra vita. Insomma una grande scommessa sulla quale crediamo ed investiamo molto, e per la quale contiamo sul supporto delle istituzioni e delle aziende di distribuzione dell’energia per lo sviluppo delle infrastrutture necessarie.   
+   
+**In generale, può farci un bilancio del 2010, in termini di vendite, innovazione tecnologica, manifestazioni motoristiche? E come si prospetta il 2011?**  
+Inizio dalla fine: Vettel ha vinto il campionato del mondo e la Red Bull Renault il titolo costruttori F1. Per la nona volta i motori Renault hanno conquistato questo prestigioso titolo. E poi una Clio R3 ha permesso al giovanissimo Stefano Alberini di vincere il Campionato Italiano Rally Junior aprendogli per il 2011 le porte del mondiale.  
+Ma per noi lo sport motoristico è solo uno spunto per portare sui nostri prodotti di tutti i giorni la tecnologia per migliorare la sicurezza, il piacere di guida e diminuire consumi ed emissioni inquinanti. Cito solo due cose tra le tante: il fantastico telaio 4Control di Laguna, che grazie alle quattro ruote sterzanti permette di associare un’incredibile maneggevolezza alle basse velocità ad una tenuta di strada favolosa alle alte, e la diffusione del sistema di navigazione NFA (Navigation For All), sviluppato insieme a TomTom, che ha reso disponibile a prezzi bassissimi e anche sulle auto dei segmenti più piccoli, il sistema di navigazione integrato nella vettura.  
+Per il resto il 2010 è stato un anno per noi fantastico anche se il mercato dell’automobile ci ha un po’ traditi. Il Gruppo Renault chiude con tutti segni positivi: + 1,3 punti di quota di mercato e +18.000 immatricolazioni e questo nonostante le vendite de mercato in Italia siano calate di quasi 160.000 unità. Per il 2012 ci aspettiamo ancora un anno difficile con un mercato che probabilmente chiuderà di nuovo con un segno negativo ma siamo molto fiduciosi sul fatto che la nostra gamma, globalmente la più giovane sul mercato, cui consentirà di incrementare ancora le vendite.
+
+**A cura della redazione**

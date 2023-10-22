@@ -1,0 +1,16 @@
+---
+id: 4030
+title: IL QATAR INVESTE NEL MERCATO DEL TURISMO ITALIANO
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2016/01/11/il-qatar-investe-nel-mercato-del-turismo-italiano/
+url: "/?p=4030"
+post_views_count:
+- '1'
+- '1'
+categories: "['VIAGGI']"
+---
+
+ L’Italia segna dinamici tassi di crescita di turisti nei paesi del Golfo. “Il numero di arrivi di turisti italiani è cresciuto di un notevole 16%, registrando 34.000 visitatori nel 2015 e siamo sicuri che questo mercato ha un grande potenziale” ha affermato Rashed AlQurese, Chief Marketing &amp; Promotions Officer del QTA.
+
+<div> </div><div>L’ufficio di Milano rafforzerà fortemente la presenza di QTA in loco, introducendo e sviluppando la notorietà e la conoscenza del Qatar come destinazione di qualità attraverso azioni di marketing proattivo nei confronti di tour operator, agenti di viaggio, partner nell’ospitalità e media, sia con azioni dirette ai consumatori. AIGO, con base a Milano, è stata nominata come l’ufficio di rappresentanza di Qatar Tourism Authority in Italia.</div><div> </div><div>AlQurese ha sottolineato che, negli ultimi anni, il Qatar ha consolidato la sua reputazione come destinazione d’eccellenza nel business tourism, diversificando il suo approccio per attrarre così anche un numero crescente di turisti leisure. Il numero di turisti stranieri in Qatar è cresciuto esponenzialmente del 91% rispetto al 2009, con un tasso di crescita medio annuo del 13.8%, facendo del Qatar una delle mete in più rapida crescita al mondo. </div><div> </div><div>La campagna di marketing del Qatar in Italia coprirà una vasta gamma di iniziative promozionali tra cui: workshop, sales visit, destination training (attraverso il programma online TAWASH di QTA) agli agenti di viaggio, partnership, familliarisation trip, campagne media e numerose attività innovative per far crescere la notorietà del Qatar e farla diventare una destinazione di prima scelta per i viaggiatori italiani.</div><div> </div><div>“Il nostro obbiettivo sarà di veicolare il messaggio che il Qatar è una destinazione in grado di coniugare un servizio di accoglienza eccellente e superbe attrazioni per il tempo libero in un’ atmosfera accogliente e tranquilla, con il tocco dell’autentica tradizione dell’ospitalità del Qatar, oltre a un’ampia offerta di esperienze culturali senza eguali nella regione,” ha affermato AlQarese. </div><div> </div><div>"Gli italiani sono viaggiatori esperti e sofisticati, e crediamo che il Qatar possa essere la destinazione che non solo sarà all’altezza delle loro aspettative, ma riuscirà a superarle,” ha aggiunto AlQarese. "In Qatar il sole splende per tutto l’anno, il paese offre scenari desertici spettacolari, ottime strutture per il tempo libero, per lo sport e per lo shopping, oltre a tantissimi ristoranti. Ma il tratto distintivo è la possibilità di assaporare una nuova esperienza culturale senza rinunciare ai più alti standard di lusso, esclusività ed eleganza."</div><div> </div><div>L’ufficio in Italia sarà il quarto ad aprire in Europa e il sesto nel mondo. Andrà a unirsi a un network internazionale che copre attualmente: Regno Unito, Francia, Germania, i paesi del Golfo Persico (Gulf Cooperation Council ) e il Sud Est Asiatico. </div><div> </div><div>www.visitqatar.gov.qa </div>

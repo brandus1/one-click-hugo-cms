@@ -1,0 +1,28 @@
+---
+id: 3325
+title: Sud Africa
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/01/29/sud-africa/
+url: "/?p=3325"
+post_views_count:
+- '11'
+- '11'
+categories: "['VIAGGI']"
+tags: "['benessere', 'natura', 'vacanze', 'wellness']"
+---
+
+<span style="font-size: 10pt; font-family: Tahoma">L’Africa selvaggia, una sinfonia di scricchiolii di rami, ruggiti, cinguettii, risate di babbuini e gracidii di rane. Nel cuore del continente nero, in Sud Africa, sorge il Sabi Sabi Private Game Riserve, un territorio incontaminato per un’atmosfera unica ed un’eleganza esclusiva. Ispirato dalle consistenze, dai colori e dalle forme della natura, lungo il letto del Sabie River, vicino al Kruger National Park, è una riserva naturale per vacanze indimenticabili nel segno della natura, che ospita quattro Lodge a cinque stelle: Earth Lodge, Bush Lodge, Selati Camp, Little Bush Camp. Ognuno con una sua personalità ben precisa, ognuno capace di trasformare ogni momento in un momento speciale. </span>
+
+<span style="font-size: 10pt; font-family: Tahoma">L’Earth Lodge, con le sue tredici suite dotate di piscina privata, è ispirato alla natura che lo circonda, scolpito nella profondità della terra, quasi invisibile nel paesaggio. Architettonicamente strutturato con elementi d’acqua, sabbia, roccia e legno, è una naturale estensione dell’ambiente selvaggio e incantato in cui è immerso. Il posto ideale per catturare il fascino di una notte africana, in un avventuroso viaggio nei meandri della terra. Il Bush Lodge, invece, è immerso in una macchia verde che si affaccia su una pozza d’acqua in cui gli animali amano bere. Un angolo di paradiso in cui natura e lusso si sposano alla perfezione. Un mondo a parte con venticinque splendide suite. Per chi ama l’atmosfera selvaggia l’ideale è il Selati Camp. Un lodge per vivere una reinterpretazione unica e intensa dell’Africa vera, calandosi in una giornata tipo dei primi anni del XIX secolo. Le otto suite infatti non dispongono di energia elettrica e sono illuminate solamente con lampade a petrolio.</span><span style="font-size: 10pt"> </span>
+
+<span style="font-size: 10pt">  
+</span><span style="font-size: 10pt; font-family: Tahoma">Per godere di un ambiente riservato, riparato dall’ombra di alberi secolari, ed ammirare lo spettacolo dei “Big5” - elefante, rinoceronte, leone, leopardo e bufalo - il Little Bush Camp offre sei suite che si affacciano in una posizione privilegiata. Ultimo arrivato nel Sabi Sabi, è stato recentemente ristrutturato ed è un lodge piccolo e raccolto, luogo di ritrovo ottimale per gruppi e famiglie. Tetti in paglia, zanzariere, particolari in legno e in pietra la rendono una struttura dall’effetto rustico ma lussuoso, semplice e originale. Ambienti eccentrici, urban-chic, immersi in un territorio vergine lontano centinaia di chilometri da Johannesburg. Una vacanza che non si addice agli amanti del lusso esibito, dei mobili inglesi, delle pelli di zebbra e degli animali impagliati alle pareti. Qui gli animali si ammirano in libertà nel loro habitat per percepire l’essenza vera della natura. </span>
+
+<span style="font-size: 10pt; font-family: Tahoma">Tanti i personaggi illustri che hanno soggiornato a Sabi Sabi: politici di spicco come Nelson Mandela, Helmut Kohl, i reali si Spagna, di Norvegia, attori e atleti di primo piano come il golfista Phil Mickelson e la tennista Anna Kournikova. Una ricetta del successo semplice ed efficace in cui si fondono servizio impeccabile, buona cucina, cantina opulenta, ranger espertissimi e magnifiche opportunità di osservare meraviglie della natura ed animali allo stato brado. Quattro strutture in cui gli ospiti possono vivere esperienze intense ed emozioni di grande romanticismo. La mattina, safari in fuoristrada, resi molto sicuri dalla presenza dei Tracker “Shangaan”, profondi conoscitori della foresta, per assaporare la natura e cercare il contatto con gli animali selvaggi. A bordo di Land Rover scoperte è possibile ammirare in escursioni sia diurne che notturne, incontri ravvicinati con centinaia di specie animali, oltre trecento specie di uccelli ed un’infinità tra insetti, rettili, alberi e piante indigene. Il pomeriggio, magnifiche terapie offerte dalla Spa, tra cui idroterapia, trattamenti all’avanguardia per la pelle e per il corpo, massaggi dimagranti, riflessologia, per momenti di estremo relax. </span>
+
+<span style="font-size: 10pt; font-family: Tahoma">Trattamenti esclusivi pensati per far sentire gli ospiti a casa propria con nomi speciali, Zebrawood Detox Delux, Dabi Sabi Jet Lag Ultimate Spa Relaxer, Marula Day Spa, che subito trasmettono un’idea di Africa e Confort in linea con la combinazione di lusso e natura che caratterizza la filosofia di Patrick Shorten, Direttore di Sabi Sabi. La sera appuntamento per il “sundowner”, l’aperitivo al tramonto insieme ai ranger e agli altri ospiti. Un momento rituale in cui ci si cambiano le impressioni, le emozioni, i commenti sulla giornata, arricchendo la propria conoscenza della flora e della fauna. Imperdibili, per gli amanti delle avventure in stile Wilbur Smith, gli aneddoti sulla vita nella savana, narrati con grande pathos dai ranger: racconti che ricostruiscono avvistamenti di leonesse e ghepardi, salvataggi da serpenti velenosi o fughe da ippopotami inferociti. Raggiungere questo paradiso è estremamente facile grazie alla nuova pista di atterraggio costruita all’interno della riserva. All’arrivo un’accoglienza a cinque stelle arricchita da rinfreschi, tovagliolini aromatizzati e mille altre piccole attenzioni che rendono unica Sabi Sabi.</span>
+
+<span style="font-size: 10pt; font-family: Tahoma">**Walter Astori**</span>
+
+**[www.sabisabi.com](https://www.sabisabi.com)**

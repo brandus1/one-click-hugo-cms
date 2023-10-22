@@ -1,0 +1,20 @@
+---
+id: 4270
+title: 'SMAU RoadShow 2013: Idee giovani in gara a Smau Bari'
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2013/02/06/smau-roadshow-2013-idee-giovani-in-gara-a-smau-bari/
+url: "/?p=4270"
+post_views_count:
+- '18'
+- '18'
+categories: "['ATTUALITÀ']"
+---
+
+**Per la quinta edizione di Smau Bari,** Smau chiama a raccolta i numerosi talenti del Mezzogiorno e li invita a partecipare alle quattro competizioni in programma nella due giorni dedicata al mondo delle tecnologie per il business che si terrà il 6 e 7 febbraio nella cornice del Nuovo Padiglione della Fiera del Levante. Come di consueto, Smau Bari darà spazio alle ultime novità tecnologiche per il business presentate dai più importanti protagonisti del settore, affiancati dai propri partner attivi sul territorio e ad un calendario di oltre 40 workshop, a cura delle più prestigiose scuole di formazione manageriale italiane, come School of Management del Politecnico di Milano e Sda Bocconi.
+
+   
+**L’edizione alle porte sarà**, inoltre, l’occasione per i giovani talenti più promettenti del Mezzogiorno, le imprese e le Pubbliche Amministrazioni più virtuose per condividere con gli oltre 3.000 visitatori attesi il proprio progetto di successo. L’obiettivo, spiega Pierantonio Macola, Amministratore Delegato di Smau è quello di innescare, attraverso questi premi, un meccanismo virtuoso di “imitazione” che possa favorire la diffusione della cultura dell’innovazione su tutto il territorio, proseguendo quindi il lavoro svolto in questi anni con il Premio Innovazione ICT Puglia, che ha visto crescere costantemente le candidature di aziende ed enti del territorio. Sono convinto, infatti, che la Puglia sia una culla di talenti ed eccellenze che vanno valorizzate affinché diventino un esempio per tutti gli innovatori.” Il programma della quinta edizione di Smau Bari inizia con il Premio Innovazione ICT Puglia, realizzato in collaborazione con la School of Management del Politecnico di Milano e Regione Puglia, che vedrà sul palco le imprese che hanno ottenuto importanti vantaggi competitivi grazie alle tecnologie digitali. Successivamente si passerà al Premio Lamarck, dal nome del naturalista Jan Baptiste Lamarck, sarà un tributo alle migliori start up del territorio volto alle nuove generazioni del Sud a continuare a fare business e ricerca nella loro terra.
+
+   
+**A seguire, sarà la volta del Premio Smart City,** che consegnerà un riconoscimento alle esperienze e ai progetti più innovativi del Mezzogiorno in tema di città intelligenti. Le Amministrazioni del territorio che hanno sviluppato progetti in tema di servizi intelligenti per il turismo, valorizzazione del patrimonio storico, artistico e culturale, innovazione per agricoltura e cultura dell’alimentazione, alfabetizzazione digitale e e-Government, mobilità sostenibile e sicurezza, smaltimento dei rifiuti, efficienza energetica e edilizia sostenibile, finanziamenti pubblici, sanità, trasporto merci e molti altri possono candidarsi gratuitamente entro il 18 gennaio sul sito www.smau.it. Il Premio Smart City sarà l’evento di punta del circuito Smart City Roadshow che nella tappa pugliese del tour presenterà, in collaborazione con Anci, un’Arena Smart City in cui si susseguiranno laboratori in cui pubbliche amministrazioni e aziende si confronteranno sui progetti si sviluppo di città intelligenti realizzati sul territorio. A chiudere il calendario di competizioni, il Mob App Award, realizzato in collaborazione con la School of Management del Politecnico di Milano e giunto alla sua seconda edizione nel capoluogo pugliese, consegnerà un riconoscimento alle migliori App in ambito business e consumer basati su dispositivi mobili come tablet e smartphone. Infine non mancheranno le giovani imprese dei Percorsi dell’Innovazione che oggi più che mai svolgono una funzione importante di sostegno al processo di innovazione nelle aziende.

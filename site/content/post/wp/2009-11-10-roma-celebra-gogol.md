@@ -1,0 +1,25 @@
+---
+id: 3032
+title: Roma celebra Gogol
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/11/10/roma-celebra-gogol/
+url: "/?p=3032"
+post_views_count:
+- '12'
+- '12'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+“Oh Roma! Roma! Oh Italia! Quale nome mi strapperà di qui?”. Un colpo di fulmine, trasformatosi in amore profondo, quasi viscerale, quello che ha legato il poeta russo Gogol’ alla Città eterna e all’Italia intera. Quando, nel 1837, Nikolaj Vasil’evi? Gogol’ arrivò nella Capitale ne rimase incantato, tanto da definirla la patria della sua anima. “Non mi sono mai sentito così immerso in una serena beatitudine” - commentava. Ora Roma, per celebrare il bicentenario della nascita dello scrittore ucraino, dedica alla sua vita e alle sue opere una serie di eventi tra mostre, rappresentazioni teatrali e incontri a tema, grazie al sodalizio tra il ministero della Cultura della Federazione russa e quello per i Beni e le attività culturali italiano. Roma e l’Italia sono fonti d’ispirazione senza fine per il drammaturgo ucraino in viaggio per l’Europa.
+
+Nel Belpaese Gogol’ abbozza l’idea più importante per l’intera letteratura russa successiva e la relativa coscienza nazionale: l’idea della purificazione e della resurrezione dell’uomo e della sua anima. Il più russo degli autori russi, “lo scrittore più originale, enigmatico che la Russia abbia mai partorito” (Andrej Belyl), questo è Gogol’, venuto al mondo il 20 marzo 1809 nel villaggio di Velikie Sorocincy, a trenta chilometri dalla tenuta di Vasil’evka. Sin da piccolo assorbe la grande religiosità che permea l’atmosfera di casa, accompagnandolo fino alla morte, e che restituirà nelle sue opere. Tra i suoi scritti più significativi si ricordano i racconti “Taras Bul’ba” (1834) e “Arabeschi” (1835), la commedia “L’ispettore Generale” (1836), la raccolta “I racconti di Pietroburgo” (1842) e il romanzo “Le anime morte” (1842). Il suo primo lavoro è il poemetto “Italia” del 1829: “Italia – paese rigoglioso! A te l’anima anela, colma di desiderio”. Seguì il poemetto romantico “Hans Küchelgarten”. Ma, dopo lo scarso gradimento della critica, Gogol’ si recò dai librai, si fece restituire le copie non vendute e le bruciò.   
+Cardine delle celebrazioni è la mostra “Gogol’ e Roma” ai musei di San Salvatore in Lauro, visitabile fino al 29 novembre, che raccoglie 160 oggetti provenienti dal Museo Nazionale della Storia di Mosca.
+
+Le testimonianze raccontano la storia dello scrittore e il legame colla Città capitolina. Un’altra retrospettiva, ospitata nelle sale di Castel Sant’Angelo, anch’essa fino al 29 novembre, racconta Gogol’ e le sue opere, tra cui “Le anime morte”, “ Il cappotto” e “Il ritratto”, attraverso le illustrazioni del pluripremiato Sergej Alimov. Non meno di quella letteraria, la produzione teatrale è stata centrale nel percorso artistico di Gogol’: “Il teatro non è per niente un’inezia o una cosa inutile – scriveva il drammaturgo – se consideri che può riunire una folla di cinque, seimila persone. E che tutta questa folla, assolutamente disomogenea se presa nelle sue individualità separate, è capace di subire ad un tratto la medesima scossa, di scoppiare in un pianto comune, come di ridere di un riso comune. È una cattedra dalla quale si può dire molto di buono al mondo”. Il teatro dunque come arte sublime, di grande rilievo sociale, al quale vengono dedicate le due mostre ospitate alla Biblioteca Museo Teatrale del Burcardo della Siae, con opere provenienti dal Museo Nazionale del Teatro di A.A. Bachrušin di Mosca. Anche questa rassegna culturale (visitabile fino al 29 novembre) aiuta a conoscere meglio l’ambiente romano in cui Gogol’ ha vissuto, i luoghi della Città eterna che più amava e prediligeva. Un connubio, quello della kermesse gogoliana, capace di dar forma, vita, realtà al “dialogo tra la meravigliosa lontananza romana e gli sconfinati spazi della Russia, dialogo che si attua con una forza segreta e ineluttabile”, come affermava lo stesso letterato.
+
+Ma l’estro di Gogol’ ha invaso anche l’arte cinematografica grazie alla rassegna “Gogol’ nel cinema” alla cineteca nazionale - cinema Trevi, svoltasi dal primo al quattro ottobre. Lungo il Novecento, i migliori registi e i più grandi attori europei si sono misurati colla sua opera. Nel corso della rassegna si sono potute confrontare le versioni cinematografiche russa e italiana del racconto “Il cappotto”. La versione italiana, di Alberto Lattuada, del 1952, è con Renato Rascel, in una delle sue migliori interpretazioni. Tutto ciò è Gogol’, mostruosità e paradosso, un realista estremo da sembrare grottesco, scrittore amante dell’Italia, letterato virtuoso capace di plasmare la lingua a suo piacimento, attraverso giochi semantici e fonici che ne fanno pietra miliare della letteratura del suo genere. “Ecco cosa penso, chi è stato in Italia darà l’addio agli altri paesi” (Gogol).
+
+**Stefano Sabella**
+
+[www.bicentenariogogol.it](https://www.bicentenariogogol.it)

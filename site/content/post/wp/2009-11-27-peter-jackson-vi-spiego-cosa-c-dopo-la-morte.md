@@ -1,0 +1,56 @@
+---
+id: 2592
+title: 'Peter Jackson: vi spiego cosa c  ? dopo la morte'
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/11/27/peter-jackson-vi-spiego-cosa-c-dopo-la-morte/
+url: "/?p=2592"
+post_views_count:
+- '0'
+- '0'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+Si può guardare il mondo dal Paradiso e osservare ciò che accade alla propria famiglia mentre sei morto? Domanda difficile e filosoficamente intrigante alla quale Peter Jackson, cerca di rispondere con Amabili Resti, tratto dal bellissimo best seller dallo stesso titolo di Alice Sebold. Il film è una fiaba nera, mix tra il trascendente ed il thriller, con al centro una ragazza violentata e uccisa da un vicino di casa che, restando sospesa in una sorta di “limbo” intermedio, ha la possibilità di osservare il mondo terreno cercando di indirizzare quelli che sono rimasti (i suoi familiari) a scoprire chi sia realmente il proprio assassino. La cosa interessante è che la piccola Susie Salmon (interpretata da una intensa Soairse Ronan) non prova nessun rancore nei confronti di chi non le ha permesso di diventare grande, anche se è ossessionata dal fatto che egli possa uccidere ancora.
+
+Un argomento alquanto intrigante e che pone la più grande domanda inevasa del genere umano: cosa accade veramente dopo che siamo morti? Possiamo pensarla in tutti i modi possibili: religiosi, etici o solamente materiali; ma in ogni caso non abbiamo a portata di mano una risposta valida. Neanche il film (come il libro) sembra avere una soluzione, però, come suggerisce Peter Jackson, porta a pensare “è se fosse vero?”. Una carica filosofica che fa di Amabili Resti un film del tutto diverso da quelli che Peter Jackson ha realizzato in questi anni. Molto lontano dalla mitologia del Signore degli Anelli e dalla leggenda di King Kong.
+
+E a vedere bene, forse, con quest’opera il regista neozelandese ha diretto il suo film più maturo. Con queste premesse la conferenza stampa tenutasi al Grand Hotel di Roma, aveva il sapore dei grandi eventi. L’enfat-prodige del cinema contemporaneo, avrebbe fugato molti dei quesiti legati al film. E l’ha fatto con un arguzia e molta pacatezza. La stessa che inocula la piccola protagonista della vicenda a chi è rimasto sulla terra a angustiarsi della sua morte. “Lo stile del film è molto netto, senza compromessi” spiega “la morte della ragazza viene raccontata con una forza drammatica straordinaria. Dietro tutto questo però c’è anche una grande forza positiva. Sarebbe stato molto più semplice fare un film deprimente, grigio. Ma non volevo questo”. Ed infatti fin dalle prime immagini capiamo come lei viva in un luogo irreale, vivido. Un posticino privilegiato dal quale può osservare quel mondo che non gli appartiene più, in maniera molto pacifica. “E’ stata una sfida trovare una dimensione di intrattenimento”.
+
+Ha continuato “Volevo che si sentisse un’energia positiva dietro questo film, perché Susie, pur essendo stata assassinata non muore mai. La sua esistenza non è distrutta. Lei sopravvive in una forma diversa”. Ma Amabili Resti non affronta solo la possibilità della vita dopo la morte, parla soprattutto della violenza dell’uomo sulle adolescenti. Un tema abbastanza pesante (che ha fatto rimuginare alquanto Stanley Tucci nell’accettare o meno il ruolo del serial killer) ma che Jackson è riuscito a trattare con molto garbo (nonostante alcune scene forti), in maniera quasi sognante. Per la realizzazione del film ha chiamato attorno a sé un cast di tutto rispetto. Susan Sarandon interpreta la nonna alcolizzata di Susie, mentre i ruoli dei genitori sono stati affidati a Rachel Weisz e Mark Wahlberg.
+
+**Quali differenze sostanziali ci sono tra il libro ed il film?**  
+Poche e tutte di carattere “cinematografico”. Il libro è molto introspettivo, narrato in prima persona da una ragazzina alla quale non stato permesso di diventare grande. Di non poter vivere una vita di affetti, di amare e di essere amata. La sua è una confessione da una sorta di paradiso, un mondo perfetto, nel quale il suo assassino la perseguita ancora, in quanto lui è vivo e sta per colpire di nuovo. Così assieme alla sceneggiatrice, Fran Walsh, mia moglie; ho cercato di puntare sull’intensità emotiva, cambiando soprattutto l’ordine degli eventi. In questa maniera siamo riusciti a dare al film più incisività e comprensione.
+
+**Lei quindici anni fa aveva diretto Creature del Cielo, un film nel quale due ragazze trovano “pace” in un mondo parallelo. Ci sono delle attinenze con Amabili Resti?**   
+Non credo che tra Creature del Cielo e Amabili Resti ci siano delle attinenze. “Creature” era tratto da una storia vera accaduta in Nuova Zelanda. Era basato sui diari delle due ragazze assassine. Qui invece avevo a disposizione un romanzo con al centro una ragazza uccisa. Il parallelo tra le due storie è forse proprio questo: tutte e tre sono delle adolescenti con tutta una vita davanti. Se la storia di Amabili Resti avesse avuto un protagonista maschile, tutto sarebbe stato diverso e nessuno ci avrebbe visto alcuna connessione.
+
+**Cosa c’è nel libro che l’attratta così tanto da decidere di farne un film?**   
+Naturalmente il grande mistero sul cosa accade realmente dopo la morte. E’ un dilemma che unisce tutti gli esseri umani. Una domanda intrigante, piena di fascino, alla quale nessuno, nemmeno io posso rispondere. Certo mi piacerebbe saperlo e posso solo immaginarlo. Mi piace credere che accada qualcosa di scientifico, di razionale alla nostra anima; qualcosa che trasformi la nostra energia. Perché l’energia, per legge fisica, non può essere distrutta. Quando uno muore non avviene un semplice abbandono. Confrontarsi con questo tema è stato molto interessante, ma abbiamo cercato di dare alla storia una parte spettacolare. Quello che succede a Susie è legato al romanzo, ma la parte in cui c’è la vendetta verso il signor Harvey, è puro intrattenimento. Penso che sia molto importante per qualsiasi film che abbia degli elementi fantastici fare in modo che sembrino veri. Evitare l’effetto ironia. Per due ore di intrattenimento il pubblico deve crederci.
+
+**Nel senso?**  
+Penso che tra il regista ed il pubblico si stipuli un contratto nel quale si prende l’impegno nell’immaginare che le cose rappresentate siano vere. E’ molto importante per evitare di essere satirici. Nel Signore degli Anelli, ma anche in King Kong e in Amabili Resti, ho cercato di filmare le scene fantastiche nel modo più realistico possibile. Per seguire il movimento degli attori ho utilizzato una handycam, facendo riprese in movimento in modo da aumentare l’effetto realistico e introdurre questo elemento di finta spontaneità.
+
+**Amabili Resti è il suo primo film americano. Come mai non ha pensato di ambientarlo in Nuova Zelanda?**  
+Perché non avrebbe avuto lo stesso impatto emotivo. Avrebbe perso il suo sapore “universale”. Non sarebbe stato credibile. La scrittrice è americana, com’è americana la cittadina dove si svolge la storia. La ragazzina è una piccola americana degli anni ’70, che si appresta a diventare grande in un paese in perenne trasformazione. Se avessi ambientato il film a casa mia, in Nuova Zelanda, non sarei stato capace di ricreare quelle atmosfere.
+
+**Lei fa film di grande impatto, ma preferisce restare nel suo mondo lontano dalle luci di Hollywood…** Sono contento di essere una voce fuori dal “coro” di Hollywood. Mi ritengo un alieno. Non vado alle loro feste, non faccio certi film, ma solo quelli che attirano di più. Mi ritengo ancora un indipendente perché è salutare restare fuori dai meccanismi della grande mecca del cinema. Questo mi ha permesso di non perdere quell’entusiasmo e quella spontaneità che avevo quando giravo i primi film.
+
+**Nel film c’è una grande cura per i “suoni” e la colonna sonora con pezzi anni ‘70, quasi si trattassero di personaggi a se stanti…**  
+Ho sempre pensato che i suoni siano importanti nei film, soprattutto in questo. E’ un espediente che spesso si dimentica. Invece è un’arma segreta, la chiave di volta di una storia, come accade nella scena in cui la sorella di Susie si introduce nella casa dell’assassino in cerca di indizi. Per quanto riguarda la colonna sonora, ho pensato a Martin Scorsese e a come la colloca nei suoi film. Avevo in mente una ventina di brani musicali degli anni 70’ da utilizzare, ma mi serviva qualcosa che fosse potente e affascinate. Così ho chiamato Brian Eno. Lui non è un compositore per il cinema, però ha capito subito di cosa avevo bisogno. Ha letto il libro e la sceneggiatura, e sulle suggestioni di entrambi ha creato della musica che si sposa benissimo con le immagini del film.
+
+**Cosa pensa del 3D, pratica di cui si parla con timore e ammirazione?**  
+Mi piace e penso che potrebbe essere il vero punto di svolta del cinema. Non capisco perché parlarne tanto. Il cinema è passato dal muto al sonoro, dal bianco e nero al colore, senza tanti traumi. Adesso si fanno molti film in 3D perché si cerca di dare più emozione al pubblico. Le polemiche finiranno quando diventerà una pratica comune. Può anche darsi che migliorerà il modo di andare al cinema.
+
+**Come ha scelto Saoirse Ronan?**  
+E’ accaduto per caso. All’epoca del casting stava ancora recitando in Espiazione. Il suo agente mi ha mandato uno showreel con delle scene in cui appariva. Anche in quel film il suo personaggio è agitato da un mistero. Sono rimasto colpito dalla sua capacità espressiva. Lei è così leggiadra, istintiva. Una qualità che molte sue coetanee non hanno. Così ho contatto i suoi genitori. Ho detto loro di cosa parlava il film, se il tema poteva colpire la loro sensibilità. Sono stati molto comprensivi e l’hanno perfino spinta ad accettare la parte.
+
+**Ma è vero che Stanley Tucci era molto indeciso nell’interpretare il serial killer?**  
+Eccome. Ci ha pensato a lungo. E posso capirlo. E’ un padre molto amoroso, ha tre figlie e calarsi nei panni di un serial killer di ragazze adolescenti gli provocava repulsione. L’ho convinto con molta calma, gli ho detto che nel film i suoi connotati sarebbero stati stravolti. Infatti nel film indossa delle lenti azzurre e la sua pelata è in parte “infoltita”. Solo in questa maniera è riuscito a distaccarsi dal personaggio. E la sua interpretazione è andata ben oltre le nostre aspettattive.
+
+**Il film è un mix tra la fiaba nera ed il thriller new age. E’ vero che nelle scene di suspence si è rifatto ad Hitchcock?**  
+Non proprio, anche se in alcune scene ho cercato di copiare da lui e onestamente non so se ci sono riuscito. Lui era un maestro della suspance. Io un semplice allievo. Hitchcock diceva che i film sono pezzi di vita e quindi le scene devono essere il più reali possibili. Per me invece i film sono pezzi di torta che impasto per il pubblico. Mi invento delle soluzioni che abbiano almeno delle attinenze con la realtà. Lo faccio per dare valore ai soldi che il pubblico spende per andare al cinema, quindi cerco di non deluderlo mai.
+
+**Roberto Leggio**
+
+(Nella foto il regista Peter Jackson durante le riprese con Soairse Ronan)

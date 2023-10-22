@@ -1,0 +1,38 @@
+---
+id: 8864
+title: A Roma &#8220;Il Gladiatore&#8221; torna al Colosseo
+author: Redazione
+type: "post"
+guid: http://progressonline.it/?p=8864
+url: "/?p=8864"
+colormag_page_layout:
+- default_layout
+categories: "['CULTURA E SPETTACOLO']"
+tags: "['il gladiatore circo massimo', 'il gladiatore Colosseo', 'Il gladiatore concerto Roma', 'il gladiatore in concerto']"
+---
+
+![](https://progressonline.it/wp-content/uploads/2018/06/Maratona-di-Roma-Colosseo-300x200.jpg)Si è svolto ieri nella meravigliosa cornice dell’Anfiteatro Flavio a Roma il grande evento dell’**Orchestra Italiana del Cinema** e **CineConcerts in collaborazione con** il **Parco archeologico del Colosseo** ed il **Rotary International, Il *Gladiatore* in Concerto: Live al Colosseo**.
+
+Erano presenti, tra le ovazioni del pubblico, il Maestro **Justin Freer**, la voce solista **Lisa Gerrard**, il compositore **Hans Zimmer** e l’indimenticabile protagonista del film, **Russell Crowe**. Una serata straordinaria, con il fine di raccogliere fondi per la campagna del **Rotary “End Polio Now”**, programma di **eradicazione della poliomielite** sostenuto dal **Rotary International**, la **Fondazione Bill &amp; Melinda Gates**, l’**Organizzazione Mondiale della Sanità**, **l’UNICEF** e i **Centri statunitensi per il controllo e la prevenzione della malattie.** L’evento ha contribuito inoltre alla prossima realizzazione di un nuovo ascensore per permettere l’accesso al terzo anello anche alle persone con difficoltà motorie.
+
+Sono stati 300 i fortunati ospiti che hanno assistito all’esecuzione dal vivo dell’indimenticabile colonna sonora firmata da Hans Zimmer e dalla stessa Lisa Gerrard in sincrono con il film premio Oscar® di Ridley Scott offrendo il proprio contributo concreto alla importante raccolta fondi. Ma gli stessi protagonisti dell’evento erano assai emozionati per uno spettacolo che è, come ha detto il compositore **Hans Zimmer**: ”Una conversazione a quattro tra la storia del film, il sotto-testo della musica, la reazione del pubblico e lo spazio del Colosseo con la sua storia.” Per la solista **Lisa Gerrard**, entrata per la prima volta al Colosseo, “Cantare nei luoghi del film è stato come caderci dentro. E’ una grande opera. Ha commosso il mondo perché non è la storia di un gladiatore, ma di un padre e di un marito”. **Russell Crowe**, infine, su Twitter è stato assai attivo a favore di questa magica serata benefica, per la quale anche lui ha attraversato l’Oceano.![](https://progressonline.it/wp-content/uploads/2018/06/crowe-300x141.jpg)
+
+“Il Colosseo è patrimonio dell’Umanità e come tale è importante il ruolo sociale e umanitario che può rivestire anche per sensibilizzare cause come quella della eradicazione definitiva della poliomielite” – spiega il Direttore del Parco archeologico del Colosseo, **Dott.ssa Alfonsina Russo** – “Con un evento di tale portata il Colosseo ha contribuito fattivamente alla lotta contro la poliomielite. Devo anche ringraziare gli organizzatori perché si sono impegnati a realizzare un ulteriore ascensore per permettere a tutti, anche a coloro che hanno difficoltà motorie, una visita completa del monumento fino al III livello dell’Anfiteatro. La cultura è e dovrà essere sempre più un diritto, da cui nessuno deve sentirsi escluso”.
+
+**![](https://progressonline.it/wp-content/uploads/2018/06/ccab141e5fd84620be44b1769b6c4736-k2dH-896x504@Gazzetta-Web-300x169.jpg)**
+
+**Marco Patrignani** CEO di Forum Music Village e Presidente dell’O.I.C., commenta: “Negli ultimi tre anni abbiamo lavorato duramente per realizzare questo evento storico e celebrare questo significativo matrimonio tra storia, musica e cinema, ed è un grande onore portare a Roma un evento in grado di connettere la Città Eterna con il mondo intero! Siamo onorati di supportare, attraverso questo evento unico, la campagna END POLIO NOW e contribuire alla realizzazione di un mondo finalmente libero dalla polio”.
+
+Il Presidente del Rotary International **Ian Riseley** sottolinea l’importanza di questo evento: “Mentre il Rotary si avvicina al suo obiettivo di eliminare la polio per sempre, è fondamentale continuare a raccogliere fondi e diffondere la consapevolezza per questa importante causa, e sono grato che i nostri sforzi siano stati sostenuti attraverso questa storica serata di musica, cultura e spettacolo al Colosseo”.
+
+La **Fondazione Bill &amp; Melinda Gates** provvederà a versare due dollari per ogni dollaro raccolto dal Rotary in occasione dell’evento.
+
+**Dr. Tedros,** Direttore Generale dell’OMS, ha aggiunto: “Grazie al Rotary e al suo programma Polio Plus, il mondo è ormai prossimo ad essere libero dalla polio. I rotariani in tutto il mondo stanno facendo sì che tutti i bambini siano protetti dalla polio. Grazie ai rotariani, nessun bambino conoscerà più il dolore di una vita affetta dalla paralisi prodotta dalla poliomielite. Abbiamo bisogno che il Rotary mantenga il suo ruolo di guida per assicurare che questa malattia sia per sempre eradicata: un mondo libero dalla polio è il dono del Rotary alle future generazioni.
+
+Da parte di tutti i partner della Global Polio Eradication Initiative – UNICEF, i Centri per il controllo e la prevenzione delle malattie di Atlanta (CDC) e la Fondazione Bill &amp; Melinda Gates e naturalmente da parte di tutti i bambini del mondo, grazie Rotary!”
+
+![](https://progressonline.it/wp-content/uploads/2018/06/SD140502-257x300.jpg)In merito all’evento, il **Prof. Avv. Emmanuele F. M. Emanuele, Presidente onorario della Fondazione Cultura e Arte,** tra i Main Sponsor del concerto, ha affermato: “Si è trattato indubbiamente di uno spettacolo unico, in cui una formazione di 200 musicisti e coristi della prestigiosa Orchestra Italiana del Cinema, diretta da Justin Freer con la partecipazione straordinaria della cantante Lisa Gerrard, ha eseguito dal vivo (ed eseguirà anche l’8 e il 9 al Circo Massimo) la colonna sonora composta da Hans Zimmer e dalla stessa Lisa Gerrard per ’Il gladiatore’, in sincrono con la proiezione del film di Ridley Scott pluripremiato agli Oscar. Ma ancora più importante rispetto al valore culturale dell’iniziativa, è quello prettamente solidale, in quanto i proventi della serata di ieri presso il Colosseo, saranno devoluti a favore della campagna End Polio now, un programma di eradicazione della poliomielite sostenuto a livello internazionale, anche da Unicef e OMS, cosa che è pienamente in linea con l’attività a favore dei meno fortunati da me sempre perseguita”.
+
+“La Roma ha partecipato come Main Partner all’evento e ha sostenuto la Rotary “End Polio Now” attraverso una donazione della Fondazione Roma Cares. Ieri Francesco Totti, tra i rappresentanti della società giallorossa presenti alla serata, ha incontrato Russel Crowe, con i due “gladiatori” di nuovo insieme nello scenario più suggestivo per ospitare un momento dal forte impatto simbolico.”
+
+L’**8** e il **9 giugno**, nella meravigliosa cornice del **Circo Massimo**, lo straordinario evento verrà replicato per il grande pubblico internazionale da una formazione di 200 musicisti e coristi della stessa **Orchestra** **Italiana del Cinema**, diretta dal Maestro **Justin Freer** e sempre con la partecipazione straordinaria della cantante **Lisa Gerrard**, ma questa volta la proiezione avverrà su un schermo HD di oltre 20 metri. I biglietti del Circo Massimo sono in vendita sul sito [www.ticketone.it](https://www.ticketone.it)

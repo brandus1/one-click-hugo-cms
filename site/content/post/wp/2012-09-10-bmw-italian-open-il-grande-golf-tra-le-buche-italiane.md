@@ -1,0 +1,22 @@
+---
+id: 4304
+title: 'Bmw Italian Open: il grande Golf, tra le buche italiane'
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2012/09/10/bmw-italian-open-il-grande-golf-tra-le-buche-italiane/
+url: "/?p=4304"
+post_views_count:
+- '14'
+- '15'
+categories: "['ATTUALITÀ']"
+---
+
+**La 69esima edizione dell’Open d’Italia maschile di golf** si terrà dal 13 al 16 settembre prossimo sui campi del Royal Park I Roveri di Torino. L’ha deciso il Consiglio della Federazione Italiana Golf, riunito a Milano sotto la presidenza del professor Franco Chimenti. Per il quarto anno consecutivo BMW si riconferma Title Sponsor dell’Italian Open, torneo fondato nel 1925 e che fa parte del calendario del tour europeo dal 1972. Normalmente gli Italian Open si sono sempre giocati a maggio, ma stavolta gli organizzatori hanno optato per una data diversa per incrementare le possibilità di avere grossi giocatori ai nastri di partenza. I migliori giocatori, tra cui gli italiani Matteo Manassero e i fratelli Molinari, giocheranno sui campi del Royal Park Golf and Country Club I Roveri, a pochi chilometri dal capoluogo piemontese. In campo internazionale una cospicua rappresentanza di vincitori di tornei dell’European Tour degli ultimi anni e la speranza di vedere dal vivo le star della imminente Ryder Cup di fine settembre. Lo scorso anno si era imposto l’inglese Robert Rock, ma i molti appassionati si auspicano che a esultare sia nuovamente un italiano.
+
+**Non sarà facile, visto che l’emozione di giocare in casa** può giocare brutti scherzi e la presenza di molti possibili golfisti tra i migliori al mondo renderà ancora più difficile l’impresa. L’anno scorso Francesco Molinari e Matteo Manassero terminarono insieme all’ottava posizione, quest’anno ci sarà ancora più attesa visto che oltre ai due appena citati saranno sicuramente presenti anche Edoardo Molinari e i due giovani Lorenzo Gagli e Andrea Pavan oltre che a una grande serie di wild card italiane che proveranno l’impresa di superare il taglio. “Sarà l’Open degli italiani” hanno dichiarato Chicco e Dodo Molinari. “Dopo la vittoria nel 2006 ci attendiamo un nuovo exploit del golf di casa nostra”. Matteo Manassero ha fatto eco ai fratelli: “Tutti devono essere presenti all’Open d’Italia, così finalmente risplenderà il sole”.  
+Diverse saranno le novità di questa edizione: la prima riguarda il riposizionamento dell’area Hospitality dedicata agli sponsor principali. I 2.000 metri quadrati a disposizione delle maggiori aziende sostenitrici dell’evento, avanzeranno di diverse decine di metri rispetto al passato, e saranno quindi a ridosso della buca 18. Attorno all’area, alla quale verrà affiancata la tribuna principale, sarà allestito anche l’Open Village dedicato al pubblico. Lo spazio di 2.600 metri quadrati offrirà 20 aree espositive, l’area merchandising, il ristoro e la zona intrattenimento per gli spettatori.
+
+**Restano naturalmente confermati gli ampi parcheggi esterni,** le bouvette lungo il percorso, il sistema di navette interno e soprattutto il contributo dei tantissimi volontari che costituiscono una delle colonne portanti per la buona riuscita dell’evento golfistico più importante in Italia. Poi, in un’ottica di valorizzazione e riqualificazione dell’Italian Open gli organizzatori hanno deciso di reinserire il titolo di accesso all’evento. Nello specifico dall’apertura del Ticketing e per le prime due settimane di vendita sarà previsto un prezzo promozionale di € 11.5 per giovedì e venerdì e € 20 per sabato e domenica. L’abbonamento per i 4 giorni di gara sarà € 48. Al termine del periodo promozionale i prezzi saranno € 15 per giovedì e venerdì e € 25 per sabato e domenica. L’abbonamento per i 4 giorni di gara sarà € 55. Durante i 4 giorni di torneo i prezzi al botteghino saranno rispettivamente di € 20 per il giovedì e il venerdì e di € 30 per il sabato e la domenica.  
+In questo anno di novità, non poteva mancare un progetto benefico. L’Italian Open sostiene il progetto internazionale World Food Programme, la più grande organizzazione umanitaria che combatte la fame nel mondo e ogni anno distribuisce pasti ad alto contenuto nutritivo a più di 195.000 bambini in oltre 1.700 scuole.
+
+di **Paolo Vaccaro**

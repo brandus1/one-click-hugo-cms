@@ -1,0 +1,16 @@
+---
+id: 4228
+title: Samsung annuncia l ?arrivo in Italia dei nuovi Galaxy A
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2015/01/21/samsung-annuncia-larrivo-in-italia-dei-nuovi-galaxy-a/
+url: "/?p=4228"
+post_views_count:
+- '22'
+- '22'
+categories: "['ATTUALITÀ']"
+---
+
+ Una nuova gamma di smartphone, pensata per chi ama uno stile fresco ed elegante, dalla connessione veloce 4G/LTE per accedere in qualunque momento ai propri canali social ed essere sempre in contatto con il proprio mondo.
+
+<div> </div><div>Un design d’impatto e alla moda, funzionalità ancora più performanti e una connessione rapida, sono le caratteristiche identificative degli ultimi smartphone Samsung Galaxy A, concepiti per uno stile di vita giovane e dinamico e per accompagnare le persone in ogni momento della giornata.</div><div> </div><div>“I nuovi Galaxy A nascono dalla volontà di Samsung di essere vicini ai più giovani e al loro stile di vita, incontrando i loro bisogni ed esigenze e dando loro la possibilità di essere sempre in contatto con il proprio mondo e le proprie passioni”, spiega Carlo Barlocco, Deputy President di Samsung Electronics Italia. </div><div>“Abbiamo voluto trasferire l’eccellenza tecnologica degli smartphone Samsung in un dispositivo versatile, accessibile ad un target giovane e al passo con i tempi”.</div><div> </div><div>I tre Galaxy A3, A5 e A7, rispettivamente 6.9mm, 6.7mm e 6.3mm, sono gli smartphone Samsung più sottili fino ad oggi e vantano un design curato in ogni dettaglio. Tutti i dispositivi hanno infatti la scocca in metallo che si adatta perfettamente al gusto personale di ognuno grazie all’ampia varietà di colori in cui sono disponibili: Pearl White, Midnight Black, Platinum Silver e Champagne Gold. Inoltre, ogni consumatore potrà scegliere la dimensione del display che più preferisce, dai 4.5’’ di A3, ai 5.0’’ di A5 fino ai 5.5” di A7.</div><div> </div><div>L’esperienza mobile e social di Galaxy A3, A5 e A7 è pensata per accompagnare gli utilizzatori in modo dinamico, aiutandoli ad esprimere il loro stile e personalità. Grazie alla potenziata fotocamera frontale da 5MP, scattare selfie è ancora più semplice e immediato e le funzioni Selfie Panoramico, GIF Animata, Bellezza Volto, aggiungono un tocco creativo ad ogni autoscatto da soli o in compagnia, garantendo la messa a fuoco dei singoli volti. Tutte le immagini e i video possono essere condivisi in tempo reale sui canali social attraverso la connessione 4G/LTE.</div><div> </div><div>I tre Galaxy A vantano un display Super AMOLED per immagini di alta qualità, dai contorni chiari e ben definiti, contrasti vividi e colori ricchi anche in condizioni di luminosità molto forte.</div><div>Come gli ultimi dispositivi della famiglia Galaxy, anche i Galaxy A migliorano la vita quotidiana delle persone grazie a funzioni avanzate come la modalità Risparmio Energetico Avanzato per prolungare considerevolmente la durata della batteria evitando che si esaurisca proprio nel momento del bisogno, la modalità Privata per tenere al sicuro i propri dati, la modalità Multi schermo per accedere a più finestre contemporaneamente o ancora l’audio regolabile che si adatta in modo intelligente alle sonorità dell’ambiente circostante.</div><div> </div>

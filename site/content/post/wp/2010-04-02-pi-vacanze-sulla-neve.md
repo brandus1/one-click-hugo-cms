@@ -1,0 +1,16 @@
+---
+id: 3485
+title: Pi  vacanze sulla neve
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2010/04/02/pi-vacanze-sulla-neve/
+url: "/?p=3485"
+post_views_count:
+- '0'
+- '0'
+categories: "['VIAGGI']"
+---
+
+Turismo invernale in aumento nel 2010. Da gennaio a marzo, infatti, quasi 6 milioni di italiani sono stati in località sciistiche (+7% rispetto all’anno precedente), con un giro d’affari complessivo di 4,7 miliardi di euro contro i 3,4 miliardi del 2009. In particolare, oltre 2,8 milioni di italiani hanno trascorso una settimana sulla neve, segnando un aumento del 40%, mentre circa 770 mila vacanzieri hanno preferito solo il weekend, per una crescita verticale del 90%.
+
+<div>Ma c’è anche chi non ha fatto neanche un giorno di vacanza sulla neve: oltre 41 milioni di maggiorenni, di cui il 33,7% (14 milioni) ha dichiarato di non avere la disponibilità economica.</div><div>Riguardo alle mete, il Trentino Alto-Adige resta una delle favorite, con il 38,8% della domanda, seguito dalla Lombardia col 9%, dal Veneto con l’8,5%, dal Piemonte con l’8%, dall’Abruzzo col 6,8% e dalla Val d’Aosta con il 5,9%.</div><div> </div><div>Questo è quanto emerge dal consuntivo delle settimane bianche e dei week end sulla neve di Federalberghi: l’indagine è stata effettuata dall’Istituto EMG Ricerche dal 15 al 21 marzo intervistando con il sistema C.A.T.I. un campione di 3.500 italiani maggiorenni rappresentativo di oltre 47 milioni di connazionali maggiorenni. </div><div> “L’incremento di turisti invernali, registrati da gennaio a marzo di quest’anno in Italia, rispetto allo stesso periodo del 2009, conferma come il nostro modello ricettivo delle località di montagna sia diventato leader assoluto a livello europeo del turismo bianco”, ha commentato Bernabò Bocca, Presidente Federalberghi. “Un incremento – ha proseguito Bocca - che ha riguardato l’intero ‘popolo’ degli italiani appassionati di sport invernali, facendo registrare incrementi sia nelle storiche settimane bianche, sia nei week end trascorsi in qualcuna delle innumerevoli località montane del Bel Paese. Incremento peraltro favorito da un’attentissima politica dei prezzi che gli albergatori italiani da soli, senza alcun incentivo pubblico, hanno attuato assecondando la grave crisi economica che il mondo intero sta attraversando. Alla luce quindi di questi interessanti risultati che probabilmente costituiscono una eccezione a livello europeo, andando completamente in controtendenza rispetto a quello che è l’andamento turistico dei Paesi nostri principali competitors nell’Unione europea, il Governo dovrebbe prendere in seria considerazione l’esame di misure indispensabili per sostenere questi segnali di ripresa spontanea del settore”. “Solo cogliendo l’attimo che sembra propizio – ha concluso il Presidente di Federalberghi- l’Italia turistica potrebbe riguadagnare quello slancio e quella visibilità capaci di riposizionarci tra le destinazioni leader a livello mondiale”. </div><div> </div><div>[**www.federalberghi.it** ](<https://www.federalberghi.it >)</div><div> </div><div>a cura della redazione</div>

@@ -1,0 +1,19 @@
+---
+id: 6519
+title: 'MIRKOEILCANE: IL CANTAUTORE SENZA RISVOLTINI'
+author: Redazione
+type: "post"
+guid: http://progressonline.it/?p=6519
+url: "/?p=6519"
+colormag_page_layout:
+- default_layout
+categories: "['CULTURA E SPETTACOLO']"
+tags: "['Festival Musicultura', 'Mirko Mancini', 'MIRKOEILCANE', 'Rai']"
+---
+
+Mirko Mancini, in arte Mirkoeilcane, cantautore e chitarrista romano, non rivelerebbe nemmeno sotto tortura l’origine del suo curioso nome d’arte: a quanto pare, l’unico depositario del segreto sarebbe Fabrizio Frizzi, il conduttore dell’edizione 2017 del Festival Musicultura, la rassegna nazionale più importante per quanto riguarda gli autori emergenti di musica popolare e canzone d’autore, che ha visto Mirko trionfare come vincitore assoluto, con tanto di consacrazione in prima serata sulla rete ammiraglia di mamma Rai. Per quanto è dato sapere il cane in realtà non c’è, ma invece le parole, le storie e le note sì, fioccano in abbondanza dalla testa e dalle mani di questo ragazzo di poco più di trent’anni nato a Garbatella, quartiere popolare e frizzantissimo della capitale, impegnato per anni nella scrittura di testi e musica per altri artisti. Un’attività intensa dietro le quinte o in posizione defilata sul palco la sua, almeno fino al 2016, quando decide di intraprendere una carriera musicale da solista, lanciando il suo primo disco omonimo, insieme agli amici di sempre, Alessandro “Duccio” Luccioli alla batteria, Domenico “Satomi” Labanca alle tastiere e Francesco “L’Intaggabile” Luzzio al basso: il disco rappresenta il naturale completamento del suo romanzo “Whisky per favore”, che rivela anche il talento letterario del cantautore.
+
+È l’inizio di un’ascesa inarrestabile, col riconoscimento di critica e pubblico e concerti sempre più affollati: prima del trionfo a Musicultura 2017 e la firma del contratto con l’innovativa etichetta discografica Fenix Entertainment, nell’ultimo anno il buon Mirko ha conquistato il Premio Bindi e il Premio Incanto, è stato finalista a Botteghe d’autore, a Musica Controcorrente si è aggiudicato il premio per il miglior testo, quello come miglior interprete (di una canzone di Pino Daniele, tema del concorso) e si è classificato al secondo posto nella categoria “inediti”; il suo album di esordio figura tra le 50 opere prime candidate al Premio Tenco ed è anche autore della colonna sonora de “I peggiori”, la commedia di Vincenzo Alfieri, uscita a maggio 2017 nelle sale.  
+Franco Califano, Ivano Fossati, Stefano Rosso: questi i mostri sacri che hanno ispirato Mirko, il quale si discosta dalla figura del giovane cantautore glam tanto di moda negli ultimi anni, bersaglio anzi della sua più feroce irrisione. Alle copertine patinate e all’ipocrisia dei social network, Mirkoeilcane risponde con un’iniezione di sano realismo, confezionando canzoni come piccoli gioielli di artigianato, mettendo a nudo, senza banalità o semplificazioni manichee, i difetti e le contraddizioni di quella generazione Y che, come lui stesso canta nei singoli “Profili (a)sociali” o “Per fortuna”, va in massa “al Pigneto col risvolto ai pantaloni” e perde la testa dietro all’ultimo dispositivo tecnologico, accantonando le cose importanti dicendosi semplicemente “Per fortuna ho un iPhone, un iWatch, un iMac…”. Le canzoni del primo album, come spiega lui stesso, “trattano la banalità e la superficialità della società di oggi partendo dal mondo della musica \[La Giuria\]. Si passa per la leggerezza dei rapporti affettivi \[Scomodo\], la scarsa individualità di ciascuno di noi \[Profili (a)sociali\], fino a paragonare la situazione della nostra nazione ad una barca che affonda mentre il capitano “se ne lava le mani” \[A picco\]”. Se queste sono le premesse iniziali, non resta che rimanere senz’altro a orecchie aperte in attesa del bis.
+
+Elisabetta Pasca

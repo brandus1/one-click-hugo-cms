@@ -1,0 +1,30 @@
+---
+id: 2951
+title: Tre giorni di spettacolo senza sipario ad InteatroFest
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/06/30/tre-giorni-di-spettacolo-senza-sipario-ad-inteatrofest/
+url: "/?p=2951"
+post_views_count:
+- '11'
+- '11'
+categories: "['CULTURA E SPETTACOLO']"
+---
+
+<font face="Tahoma, sans-serif"><font size="2">Cosa accade se gli artisti di strada con i loro pupazzi giganti entrano in casa e se invece un tradizionale gioco da tavolo come il Gioco dell’oca esce e si fa interattivo coinvolgendo la piazza in prove di abilità eco-sostenibile? Se chi danza la paura e la fragilità del nostro tempo, si trova accanto a chi esplora il contatto a due e la fiducia nella possibilità dell’incontro spirituale attraverso il corpo? Se drammatici panorami bellici si alternano a semplici inosservati gesti quotidiani dell’essere umano perfetto? Accade InteatroFest 2009! Il Festival Internazionale di arti performative conosciuto in tutto il mondo dal 1977, quest’anno andrà in scena dal 2 al 4 luglio a Polverigi e Jesi (Marche – AN) per la XXXII edizione. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Azioni, installazioni, produzioni, relazioni. Parlano gli esseri, i luoghi e le architetture. Tre giorni di spettacoli senza sipario, perché sono i luoghi a diventare scena: gli incantevoli scenari naturali e microurbani di un paese votato al teatro, di una villa trecentesca immersa in un parco secolare sempre aperto, di una piazza storica di fronte a un teatro di tradizione tra le colline marchigiane. La sede di lavoro di Inteatro e del Festival è infatti Villa Nappi di Polverigi, luogo di felici scoperte e di novità della scena nazionale ed internazionale da decenni. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">InteatroFestival è da sempre un concentrato di creatività contemporanea giovane, resistente, polivalente e multiforme tra performance sperimentali, danza, musica, video, installazioni, con le antenne alzate sulla attività artistica internazionale genuina, che non si fa schiacciare da pretese di grandeur e scenari culturali mortificanti. Cantiere permanente aperto, residenza artistica per la creazione contemporanea, accademia internazionale, nodo focale di una fitta rete di relazioni, idee e progetti, Villa Nappi è un luogo dove artisti tecnici pubblico turisti curiosi giornalisti cittadini si mescolano si incontrano 365 giorni l’anno. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">In un “parco naturale delle arti performative”, qualcosa di speciale più accadere in ogni momento. Si danza, si studia, si prova, si recita, si inventa, si medita, si sperimenta, si fa ricerca artistica in estate, in inverno, in primavera, in autunno. E chi chiede ospitalità anche solo per qualche giorno di vacanza e relax nella quiete marchigiana, si ritrova a contatto con questa creatività, la respira, la osserva, la interroga. La magnifica Villa Nappi è ormai un luogo di accoglienza, ritrovo, incontro e scambio. Per questo il pubblico arriva come in pellegrinaggio, edizione dopo edizione, anche senza aver prima consultato il programma per naturale passaparola e memoria comune, perché basta risalire il sentiero e varcare la soglia del parco di Villa Nappi di Polverigi, per trovarsi immersi in un’atmosfera da festival autentico, respirando l’aria frizzante della creatività in pieno svolgimento. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Dopo 32 anni di storia che hanno visto passare personaggi significativi del teatro, della danza, della musica, della satira, dell’arte e della creatività internazionale nel senso più ampio del termine, da Alain Platel a Judith Malina, dalla Societas alla Fura, dalla Valdoca ai Sosta Palmizi, da Leo Bassi a Luttazzi, Leo de Berardinis, Barberio Corsetti, Martone, Paolini, Mercan Dede, Andrea Pazienza, Hector Zazou e moltissimi altri, Inteatro sceglie di continuare a raccontare il proprio tempo evolvendo. Forte della grande tradizione festivaliera, decide di puntare sulla straordinaria struttura, sul luogo e il personale, sulle competenze, mettendole a disposizione degli artisti grazie a InteatroPROD. Non più soltanto una vetrina dunque, ma una forma di sostegno concreto alla creatività. Di fatto InteatroPROD è l’ufficio dedicato al sostegno e alla diffusione della creazione artistica contemporanea, offre un supporto specifico dalla fase della ricerca (residenze creative, progetti di formazione) a quella della produzione (supervisione, ricerca di partners) e della distribuzione (networking, progetti internazionali). Il primo momento distributivo è proprio InteatroFest.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">In particolare spazio alle compagnie e agli artisti ospitati quest’anno in residenza, per presentare in anteprima, prima italiana o in debutto assoluto ciò che è nato nell’atmosfera fertile di Villa Nappi. In molti casi si tratta anche di produzioni dal Festival stesso. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">I lavori presentati seguono quasi tutti una traccia spontanea e urgente, legata a tematiche di relazione e sostenibilità, ambiente, ecologia, benessere, fare comunità, etica e valori. È il ruolo sociale dell’artista e dell’arte che emerge con forza nelle scritture contemporanee, attraverso vecchi e nuovi linguaggi. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Ci saranno nove lavori internazionali in anteprima, prima italiana o debutto assoluto: Il Gioco dell’oca Verde interattivo in piazza; i pupazzi giganti di Delit de facade in casa. Corpo, azioni, installazioni, teatrodanza, videoarte nei luoghi del paese e nel parco. Performance della IFA Academy e della Sead di Salisburgo. Tra gli ospiti in residenza e i progetti realizzati con il supporto di InteatroPROD ci saranno German Jauregui, Rosa Casado e Mike Brookes, OHT, Teatro Sotterraneo, Orthographe, Stalk/Daniele Albanese.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">**C.S.**</font></font>

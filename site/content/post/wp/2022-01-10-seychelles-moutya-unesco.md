@@ -1,0 +1,22 @@
+---
+id: 13589
+title: "SEYCHELLES: LA \u201CMOUTYA\u201D PATRIMONIO CULTURALE UNESCO"
+author: Redazione
+type: "post"
+guid: https://progressonline.it/?p=13589
+url: "/?p=13589"
+colormag_page_layout:
+- default_layout
+hefo_before:
+- '0'
+hefo_after:
+- '0'
+categories: "['VIAGGI']"
+tags: "['Seychelles', 'Seychelles Tourism Board', 'UNESCO']"
+---
+
+Forma di danza creata dagli schiavi africani e portata alle **Seychelles** nel XVIII secolo, la **‘moutya’** era tra le numerose candidature di una lista di 48 che il gruppo di valutazione dell’**Unesco**, composto da esperti, aveva raccomandato al comitato intergovernativo per l’iscrizione nella lista. La decisione è arrivata la scorsa settimana e l’Unesco ha annunciato la notizia su Twitter e ciò significa che “moutya” è stata riconosciuta come diversi altri tipi di musica, tipo il reggae che è stato iscritto nell’elenco due anni fa. Il governo delle Seychelles aveva presentato per la prima volta la “moutya” all’Unesco nel 2019, che inizialmente la aveva respinta adducendo la mancanza di informazioni.
+
+I lavori per stabilire misure di salvaguardia per **la tradizionale danza “*moutya*” delle Seychelles** sono iniziati nel 2015 quando le parti interessate coinvolte nella protezione e nella conservazione del patrimonio nazionale hanno preso parte a una sessione per preparare un dossier di nomina per la sua iscrizione nella lista rappresentativa del patrimonio culturale immateriale dell’umanità dell’Unesco. Il 30 agosto 2020, alcuni distretti di **Mahé, Praslin** e **La Digue** hanno ospitato un’ora di ‘*moutya*‘, per commemorare il secondo anniversario dell’abrogazione del regolamento che vietava la percussione dei tamburi a Victoria e altre località come Mahé, Praslin e La Digue dopo le 21:00. L’evento, organizzato dall’allora Dipartimento della Cultura e dai partner distrettuali, è stato organizzato per commemorare l’abrogazione del regolamento del 30 agosto 2018, quando il dipartimento della cultura ha intrapreso la sua missione per far valorizzare la ‘*moutya*‘ come un elemento da inserire nella lista del patrimonio culturale immateriale per l’umanità dell’Unesco.
+
+**Originariamente eseguita intorno ad un falò, nel buio della foresta nel cuore della notte**, la “*moutya”* era un’espressione di resistenza, che permetteva alle persone schiavizzate di condividere la loro sofferenza e cantare le difficoltà che dovevano affrontare, lontano dai loro padroni. I loro strumenti erano di base tamburi di pelle di capra, noci di cocco, triangoli di metallo, pentole e utensili da cucina e la coreografia era semplice e sensuale. In primo luogo, **i tamburi**, i principali strumenti utilizzati vengono riscaldati su un fuoco, prima che i tamburini diano il ritmo e gli uomini tra la folla indichino vari temi, di solito temi sociali, a cui le ballerine rispondono con toni acuti. **Gli uomini e le donne iniziano a ballare a un ritmo moderato che include l’ondeggiamento delle anche e lo scalpiccio dei piedi**. I ballerini si avvicinano, ma non si toccano fisicamente, con gli uomini che allungano le braccia mentre le donne arruffano e agitano le gonne in risposta. Simile alle sue controparti dell’Oceano Indiano come la “*sega*” di **Mauritius** o la “*maloya*” dell’isola di **Reunion**, la “*moutya*” è stata promossa dalle autorità locali mentre cercavano di forgiare un’identità nazionale creola dopo l’indipendenza nel 1976. Di solito una danza eseguita spontaneamente all’interno delle comunità, ha raggiunto lo status ufficiale nel tempo poiché la sua qualità di improvvisazione ha lasciato il posto a eventi organizzati rivolti ai turisti. La ‘**Moutya**‘ fu portata alle Seychelles dagli schiavi africani che arrivarono con i coloni francesi all’inizio del XVIII secolo. Erano soliti praticare questa danza di notte nella foresta, a distanza dalla casa della piantagione dove vivevano i loro padroni. **Storicamente, “*moutya*” era un conforto psicologico contro le difficoltà e la povertà e un mezzo per resistere alla servitù e all’ingiustizia sociale.** “**Moutya**” continua ad essere una forma di espressione dell’identità culturale fino ad oggi, mantenendo la sua forma di danza tradizionale. Di solito viene eseguita spontaneamente all’interno della comunità, così come in occasione di incontri sociali ed eventi culturali. Viene trasmessa in modo informale attraverso l’esecuzione, l’osservazione e l’imitazione e formalmente attraverso la ricerca, la documentazione e la divulgazione.

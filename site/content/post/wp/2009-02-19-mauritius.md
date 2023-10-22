@@ -1,0 +1,45 @@
+---
+id: 3356
+title: Mauritius
+author: Redazione
+type: "post"
+guid: http://progressonline.it/2009/02/19/mauritius/
+url: "/?p=3356"
+post_views_count:
+- '10'
+- '10'
+categories: "['VIAGGI']"
+tags: "['abbronzatura', 'benessere', 'vacanze', 'wellness']"
+---
+
+<span style="font-size: 10pt; font-family: 'Tahoma','sans-serif'"><font face="Tahoma, sans-serif"><font size="2"><font face="Tahoma, sans-serif"><font size="2">Benchè l’isola non sia più quella magnificata da Mark Twain e da Baudelaire, Mauritius è ancora oggi un piccolo paradiso naturale. Lungo le strade, nei parchi e nei giardini è tutto un susseguirsi di alberi ed arbusti variopinti e profumati (i flamboyants, letteralmente i ‘fiammeggianti’), sui quali cantano incessantemente uccelli multicolori. Le lunghe distese di sabbia sono coronate da folti filari di alta ed ombrosa casuarina. </font></font></font></font></span>
+
+<font face="Tahoma, sans-serif"><font size="2">Il turismo è arrivato con discrezione ed il visitatore può concedersi una vacanza di completo riposo, di sole e di intensa vita di mare durante il giorno. E dal tramonto in poi vivere la musica, il folclore e la cucina nei tanti vivacissimi locali in riva al mare. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Se siete un ‘ologo’ (zoologo, biologo, ornitologo, ecc.), poi Mauritius è il vostro paradiso, così come lo sono le Seychelles ed il Madagascar. Certo può rattristarci sapere della estinzione del Dodo, buffo e grasso uccello simbolo dell’isola, incapace di volare e che fu sterminato poco dopo l’arrivo degli olandesi. Il povero pennuto non riuscì a difendersi dagli uomini e dagli animali introdotti nell’isola: cani, scimmie, maiali e topi. Insieme a lui scomparvero definitivamente il pappagallo nero e le tartarughe giganti. Anche gran parte della vegetazione tipica di Mauritius venne alterata dalla introduzione delle coltivazioni intensive della canna da zucchero e di altre piante.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Ai turisti che arrivano a Mauritius, l’isola offre una vacanza fondata sul mare anche se non mancano lussureggianti foreste, giardini botanici e piccole ma acuminate montagne dalle fresche cascate. Il mare è un vero sogno per gli amanti delle immersioni che potranno andare alla scoperta dei giardini di corallo che si sviluppano tra i 7 ed i 20 metri di profondità. Con meno di 5 euro a persona potrete farvi trasportare dai pescatori mauriziani proprio sopra la barriera corallina, navigando su appositi battelli dal fondo di vetro e, dopo aver gettato l’ancora, immergervi senza timore fra corali variopinti e pesci coloratissimi che, se avrete avuto cura di portare con voi un pezzo di pane, pasteggeranno direttamente dalla vostra mano. Tutte le spiagge dell’isola sono pubbliche e il turista può scegliere se scendere in quelle più frequentare, specie in prossimità delle strutture alberghiere, o trovarsi una solitaria caletta in cui riposare. Gli ombrelloni a Mauritius non servono. Le spiagge infatti sono circondate da alte piante e l’ombra, anche nella stagione più calda, non manca mai. Una caratteristica indimenticabile di Mauritius sono i verdi prati che arrivano quasi ovunque a lambire le calme e cristalline acque. Caratteristico è anche il contrasto fra il bianco della sabbia, e il nero delle rocce di origine vulcanica, circondate da centinaia di pesciolini che i bambini pescano a "secchiate" con piccoli retini. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Baie du Tombeau, Baie de l’Arsenal e Trou aux Biches sono invece le tre meravigliose località marine che si incontrano percorrendo la strada che da Port Lois porta verso nord.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Baie de Tombeau o ‘tomb bay’ prende il nome dalle tante navi che trovarono nelle sue acque la propria tomba, ma delle otto navi pirata che si dice siano qui naufragate e delle quali da anni si cercano i ricchi tesori, non è stata finora trovata alcuna traccia. Baie de Tombeau è protetta la alte scogliere e le sue spiagge sono solitamente poco frequentate rispetto a quelle di Trou aux Biches, anche per la mancanza di strutture per la ristorazione.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Baie de l’Arsenal, nota anche come Baie aux Tortues, è una solitaria e splendida spiaggia posta nei pressi delle rovine di un arsenale francese ed di un mulino, oggi seminascosti fra alta vegetazione, cascate e ruscelli. </font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Letteralmente "tana delle femmine del cervo", Trou aux Biches è un nastro di tre chilometri di conchiglie e coralli polverizzati.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Questa località è una delle più lussuose dell’isola, con i suoi grandi complessi alberghieri ed i campi da golf, che purtroppo la stanno sempre più deturpando. Tuttavia, se si escludono i weekend, è ancora possibile trovare splendide spiagge ancora poco affollate, come quelle di Mon Choisy. Importante centro turistico, Grand Baie si sviluppa attorno ad un rinomato porticciolo turistico ed è una città cosmopolita a forte vocazione commerciale. Definita anche ‘la Portofino’ di Mauritius, Grand Baie ha la maggior concentrazione di hotel, ristoranti, boutique, centri di sport nautici, caffè e discoteche di tutta l’isola. Piacevole, anche se spesso affollata, la passeggiata sul lungomare, ricco di eleganti negozi e ristoranti multietnici, spesso allietati da orchestrine locali.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">Coin de Mire e Ile Plate. Sono le due isole più vicine alla estremità nord dell’isola. Coin de Mire dista 4 km dalla costa ed è così chiamata per la sua forma simile ad un cuneo utilizzato per orientare i cannoni. Ile Plate è più lontana e le sue splendide acque sono ideali per praticare lo snorkelling. Una escursione su quest’isola costa all’incirca 1200 RS (pari circa a 30 Euro).</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">**I giardini di Pamplemousses**. I giardini botanici ‘Sir Seewoosagur Ramgoolam’ di Pamplemousses, creati nel 1767, sono noti presso tutti i naturalisti del mondo per le tante specie di piante: 500 specie di piante esotiche, giganteschi fiori di loto Victoria Regia, ninfee giganti dell’Amazzonia e 80 varietà di palme, tra le quali la palma corifaol che fiorisce una volta ogni quaranta anni prima di morire. Non si può andare a Mauritius senza una visita a questo meraviglioso giardino dove trascorrere ore serene passeggiando circondati da incomparabili profumi: il ginger, il cinnamomo, la noce moscata, l’eucaliptus, il sandalo ed altri. Il costo della visita ai giardini, con guida, è di circa 50 Rs (2 euro circa). Da ammirare il cancello di ingresso in ferro battuto che venne premiato all’Esposizione Universale di Parigi nel 1851.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">**Curepipe**. È la principale città residenziale dell’isola, famosa per le sue boutiques. Tra Curepipe e Florèal si trova il vulcano estinto Trou au Cerfs, dal cui cratere, largo 200 metri e profondo 85, è possibile abbracciare con lo sguardo una vasta porzione dell’isola. Nella cittadina di Curepipe si potrà visitare una fabbrica di modellini navali realizzati a mano e fedeli, nei minimi particolari, ai vascelli storici originali. Dopo la sosta per lo shopping si può proseguire in direzione sud-est lungo la regione degli altipiani per raggiunge Grand Bassin e Plaine Champagne. Grand Bassin è un lago sacro per gli hindu che ogni anno, tra febbraio e marzo, si recano qui per adorare Shiva che congiunse le acque sante di Grand Bassin con quelle del Gange. Plaine Champagne è il parco naturale più grande dell’isola ed è anche l’area più piovosa di Mauritius. Un breve sentiero consente di ammirare le gole del Black River. L’ambiente naturale è straordinario per rigogliosità della vegetazione endemica e per l’avifauna presente. Non è raro infatti imbattersi a Plain Champage in scimmie, daini e maiali selvatici. Nei pressi di Curepipe si possono visitare le cascate Tamarind, ove si può fare uno splendido bagno rinfrescante.</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">**Moka e dintorni**. La zona è una delle più pittoresche dell’isola, ricca di ruscelli, cascate, montagne e verdi valli. Moka ospita l’università di Mauritius e il Mahatma Gandhi Istitute. Nei pressi di Moka si trova Le Réduit, Domain les Paille si trova a soli 10 minuti da Port Louis ed è una riserva naturale di 1.500 ettari, ai piedi di una catena montuosa. All’interno diversi ristoranti (compreso l’italiano "La Dolce Vita"), una grande Casino, una pizzeria, una piscina, un mini-golf ed un maneggio. Da visitare un bel mulino d’epoca, inserito in una replica fedele di un zuccherificio e di una distilleria di rhum.</font></font>
+
+**A.B.**
+
+<font face="Tahoma, sans-serif"><font size="2">[**www.mauritius-turismo.com**](https://www.mauritius-turismo.com/)</font></font>
+
+<font face="Tahoma, sans-serif"><font size="2">[**www.tourism-rodrigues.mu**](https://www.tourism-rodrigues.mu/)</font></font>
