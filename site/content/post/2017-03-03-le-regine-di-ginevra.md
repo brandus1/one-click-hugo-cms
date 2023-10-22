@@ -1,0 +1,68 @@
+---
+title: "Salone dell'auto: le regine di Ginevra"
+author: Redazione
+type: post
+date: 2017-03-03T12:02:29+00:00
+url: /?p=5711
+slide_template:
+  - default
+  - default
+vc_teaser:
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+td_post_theme_settings:
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_3";}'
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_3";}'
+post_views_count:
+  - 54
+  - 55
+categories:
+  - AUTO
+  - SLIDE
+tags:
+  - Alfa Romeo
+  - anteprime
+  - anteprime auto
+  - auto
+  - lamborghini
+  - Mercedes-Benz
+  - news
+  - Nissan
+  - Peugeot
+  - "Salone dell'Auto Ginevra"
+
+---
+Fervono i preparativi per l&#8217;87esima edizione del Salone Internazionale dell&#8217;Auto di Ginevra in programma dal 9 al 19 marzo. Una passerella di grande prestigio per tutto il mondo dell&#8217;auto che si dà appuntamento nella città svizzera per presentare sia le nuove serie di modelli, che debutteranno sul mercato nel corso dell&#8217;anno, sia le concept car e gli studi di design che anticipano gli sviluppi e le tendenze del settore.
+
+Partiamo da un fuoristrada, quello firmato dal “sub-brand” **Mercedes-Maybach**, un&#8217;icona off-road in grado di dimostrare che la definizione di lusso esclusivo può spingersi oltre i confini tradizionali.
+
+<figure id="attachment_5712" aria-describedby="caption-attachment-5712" style="width: 300px" class="wp-caption alignleft"><img decoding="async" loading="lazy" class="size-medium wp-image-5712" src="https://progressonline.it/wp-content/uploads/2017/03/Mercedes-Maybach_G_650_23-300x169.jpg" alt="Mercedes-Maybach G 650 Landaulet " width="300" height="169" /><figcaption id="caption-attachment-5712" class="wp-caption-text">Mercedes-Maybach G 650 Landaulet</figcaption></figure>
+
+Un cult che si reinventa per mettere in luce il potenziale che questa vettura prodotta dal 1979 ha tuttora in serbo.  
+Dimensioni imponenti per **G 650 Landaulet** che, con 5345 mm di lunghezza, 3428 mm di passo, 2235 mm di altezza, quasi mezzo metro di altezza libera dal suolo e straordinaria spaziosità e comfort per quattro passeggeri, si impongono come indiscusso punto di riferimento. Questa originalissima Classe G è frutto di una straordinaria ed inedita combinazione tra una lussuosa limousine ed un fuoristrada. Mentre i sedili anteriori sono coperti da un tetto chiuso, chi viaggia dietro può godere di tutti i comfort: la capote a scomparsa si aziona al semplice tocco di un pulsante per regalare tutto il piacere di un viaggio a cielo aperto ai passeggeri comodamente seduti su sedili singoli. Un pannello di vetro azionabile elettricamente, disponibile a richiesta, separa il vano posteriore dalla postazione di guida, mentre i cristalli vengono oscurati con la semplice pressione di un pulsante.
+
+Peugeot approda a Ginevra con un concept, presentando la propria visione dell’esperienza del veicolo a guida autonoma, con la piattaforma I.o.T proposta in anteprima mondiale a bordo di un’automobile. Si tratta della piattaforma Samsung Artik Cloud che integra l’automobile al cloud del suo utilizzatore.<img decoding="async" loading="lazy" class="size-medium wp-image-5713 alignleft" src="https://progressonline.it/wp-content/uploads/2017/03/PEUGEOT_INSTINCTCONCEPT_2702STYP009-300x185.jpg" alt="PEUGEOT_INSTINCTCONCEPT_2702STYP009" width="300" height="185" />  
+**PEUGEOT INSTINCT CONCEPT** si sviluppa in simbiosi con tutti gli oggetti connessi per un nuovo modo di vivere la mobilità. L’automobile integra i dati che il suo utilizzatore desidera condividere con lei, dati presi dallo smartphone, dallo smartwatch e dalla domotica.  
+Le attività quotidiane si svolgono adesso senza soluzione di continuità. Dalla casa al lavoro, passando per il tempo libero, PEUGEOT INSTINCT CONCEPT presenta una nuova gamma di utilizzi, in modo del tutto fluido e propone quattro modalità di viaggio, due con guida attiva (Drive Boost o Drive Relax) e due con guida autonoma (Autonomous Sharp o Autonomous Soft).  
+Il PEUGEOT Responsive i-Cockpit ridefinisce l’abitacolo per corrispondere agli utilizzi generati dalla guida autonoma. Le interfacce si configurano – prima, durante e dopo l’uso – in funzione della modalità di viaggio selezionata e del profilo dell’utilizzatore.  
+Il conducente mantiene in tutte le circostanze il controllo: nella modalità Autonomous, può eseguire un comando, una manovra tramite l’i-Device ubicato sulla consolle centrale. Inoltre, questo modello adotta una carrozzeria shooting brake che si caratterizza per uno stile senza tempo, con alcuni elementi aerodinamici attivi che conferiscono grande purezza a questa silhouette.  
+Al prossimo Salone Internazionale dell’Auto di Ginevra, **Toyota** presenterà ufficialmente la nuova **Yaris Model Year 2017** che, grazie all’introduzione di numerose modifiche e miglioramenti, guadagna un design esterno più dinamico e finiture interne di qualità. Un altro protagonista a Ginevra sarà il concept i-TRIL. Sviluppato da Toyota Motor Europe (TME) in collaborazione con lo studio di design di Nizza ED2, questo concept elettrico propone nuove ed innovative soluzione sviluppate da Toyota per proporre soluzioni di mobilità avanzata ed a ridotto impatto ambientale. Lo schema di sedili 1+2 e l’adozione dell’Active Lean technology, permettono ad i-TRIL di presentarsi come una valida alternativa alle vetture di segmento A e B, alle motociclette e ad altri veicoli elettrici, assicurando allo stesso tempo un elevato piacere di guida anche in contesti urbani.
+
+Pronto a stupire anche il marchio **Seat**, con la **nuova Ibiza**. Spuntano dotazioni tecnologiche più avanzate, una dinamica eccezionale e uno spazio interno riprogettato per ottenere il massimo comfort.<img decoding="async" loading="lazy" class="size-medium wp-image-5715 alignleft" src="https://progressonline.it/wp-content/uploads/2017/03/New-SEAT-Ibiza001H-300x249.jpg" alt="New-SEAT-Ibiza001H" width="300" height="249" />  
+Il cambio delle proporzioni (87 mm più larga, 2 mm più corta e 1 mm più bassa rispetto al modello precedente) le conferisce un’immagine di vettura imponente e ancorata a terra. E la chiave di tutto ciò sta nella nuova piattaforma MQB A0.  
+La nuova Seat Ibiza sarà disponibile unicamente nella funzionale versione 5 porte, ma il suo nuovo design riesce comunque a offrire il look sportivo caratteristico di una tre porte. Notevoli passi in avanti sono stati compiuti anche in termini di controllo della rumorosità, vibrazioni e fluidità della marcia. La nuova SEAT Ibiza offre infatti una qualità all’altezza delle automobili di classe superiore, scattante nel traffico urbano, efficiente nelle strade tortuose e straordinariamente confortevole nelle lunghe percorrenze. Con una spaziosità interna notevolmente maggiore, è più robusta e anche molto più sicura.
+
+Al prossimo Salone di Ginevra, Ford Performance presenterà, in anteprima mondiale, la nuova generazione di **Ford Fiesta ST**, in grado di assicurare la più divertente, coinvolgente e appagante esperienza di guida mai provata, grazie al selettore modalità di guida e al nuovissimo 3 cilindri EcoBoost 1.5, che scaricherà sulla strada 200 cavalli, con una coppia massima di 290 Nm, accelerando da 0 a 100 km/h in soli 6,7’’.  
+La terza generazione di Fiesta ST sarà il primo modello Ford Performance equipaggiato da un motore a 3 cilindri, e sarà la prima Fiesta ST a disporre del selettore modalità di guida, grazie al quale si potrà scegliere tra Normal, Sport e Track, ottimizzando le configurazioni di motore, sterzo e controlli di stabilità, per vivere la migliore esperienza di guida possibile su strada o pista. Il selettore modalità di guida regolerà anche la tecnologia di ottimizzazione elettronica del suono (Electronic Sound Enhancement, ESE) e la valvola attiva di controllo del sound dello scarico, che contribuiranno a rendere l’esperienza di guida ancora più emozionante. Queste tecnologie amplificheranno ulteriormente il sound sportivo del nuovissimo EcoBoost 1.5, mentre la tecnologia di disattivazione dei cilindri applicata al 3 cilindri consentirà di limitare le emissioni CO2 fino a 114 g/km*. In arrivo sul mercato all’inizio del 2018, sia in versione 3 che 5 porte, la nuova generazione di Fiesta ST offrirà una gamma di opzioni per la personalizzazione come mai prima d’ora.
+
+Al Salone si festeggerà anche una nascita, quella del primo SUV del marchio Alfa Romeo pronto ad esprimere piena emozione di guida, massime performance e stile sportivo. Sono queste le peculiarità del più autentico &#8220;spirito Alfa&#8221; che, per la prima volta in oltre un secolo di storia, si ritrovano in una sport utility. Il suo nome è **Alfa Romeo Stelvio** e vuole cambiare le regole del segmento dei SUV premium di medie dimensioni.  
+Come da tradizione Alfa Romeo, il nuovo SUV assicura un comportamento dinamico impeccabile, da vera sportiva, come dimostrano una distribuzione equilibrata dei pesi, lo sterzo più diretto del segmento e sospensioni evolute con tecnologia esclusiva AlfalinkTM, oltre a un ampio impiego di materiali ultraleggeri e tecnologici, quali la fibra di carbonio per l&#8217;albero di trasmissione e l&#8217;alluminio per i motori, le sospensioni, il cofano, i parafanghi, le portiere ed il portellone. Inoltre, per una tenuta di strada senza compromessi, il SUV Stelvio propone il sistema integrale Alfa Romeo Q4 e, a richiesta, può essere equipaggiato con il differenziale posteriore autobloccante meccanico. Non solo prestazioni e handling eccellenti, quindi, ma anche tanto spazio a disposizione dei passeggeri per vivere e condividere il piacere del viaggio, qualunque sia la destinazione da raggiungere.
+
+Anche la casa dei quattro anelli non si fa sfuggire la ghiotta occasione del Salone dell&#8217;Auto di Ginevra per presentarsi al meglio. Qui vedremo, con ogni probabilità, la nuova **Audi RS5 Coupé. **Spinta dal motore 2.9 litri V6 twin-turbo, già visto sulla Porsche Panamera 4S, con una potenza elevata a 450 cavalli e con 446 Nm di coppia massima, questo sogno su quattro ruote promette prestazioni di alto livello, come l’accelerazione da 0 a 100 km/h in meno di 4 secondi ed una velocità massima di 250 km/h (autolimitata).  
+Saranno disponibili anche dei pacchetti opzionali, per permettere all’Audi RS5 Coupé di essere ancora più prestazionale e raggiungere i 280 chilometri orari. In programma anche il lancio della RS4 Avant, probabilmente a settembre a Francoforte, e la RS5 Sportback, per la quale bisognerà invece attendere il 2018.
+
+**Nissan** decide, invece, di puntare tutto su **BladeGlider**, l&#8217;auto che mette insieme tecnologia a zero emissioni con performance di alto livello per un design rivoluzionario. <img decoding="async" loading="lazy" class="size-medium wp-image-5714 alignright" src="https://progressonline.it/wp-content/uploads/2017/03/148961_BladeGlider_Rio_2016-300x200.jpg" alt="148961_BladeGlider_Rio_2016" width="300" height="200" />  
+Dalle concept car svelate per la prima volta al Tokyo Motor Show del 2013, si passa a veicoli che mostrano le tecnologie del futuro, in grado di unire la Mobilità Intelligente di Nissan, il rispetto per l’ambiente e caratteristiche di guida da sport car.  
+BladeGlider è l&#8217;espressione del continuo impegno di Nissan per lo sviluppo di veicoli a zero emissioni e nuove tecnologie automotive che includono sistemi di guida autonoma e connettività, non a caso il marchio produce il veicolo a zero emissioni più venduto al mondo, Nissan LEAF, ed è pioniere dei sistemi di Mobilità Intelligente che saranno presenti nella gamma di veicoli nei prossimi anni. Con una linea di cintura alta, portiere a diedro incernierate posteriormente, viene accentuato l’ingresso e l’uscita dall’abitacolo. Il tetto aperto del BladeGlider è rinforzato con una struttura di protezione anti ribaltamento integrata, regalando l’emozione di una vettura sportiva decappottabile da competizione con la sicurezza di un coupé.
+
+<img decoding="async" loading="lazy" class="size-medium wp-image-5716 alignleft" src="https://progressonline.it/wp-content/uploads/2017/03/457866-300x200.jpg" alt="457866" width="300" height="200" /> Chiudiamo questa galleria di anteprime con la **Lamborghini Aventador S**. Nuovo design aerodinamico, sospensioni riprogettate, maggiore potenza e una dinamica di guida completamente rivista giustificano la &#8220;S&#8221;, il suffisso utilizzato per le versioni migliorate di modelli Lamborghini già esistenti e che definisce un nuovo punto di riferimento per la Lamborghini Aventador con motore V12. Riprogettata attorno al concetto di &#8220;controllo totale&#8221; per offrire un&#8217;esperienza di guida straordinaria e prestazioni di primo livello, questa nuova supersportiva è perfetta in ogni dettaglio: tutto, dalle sospensioni ai controlli elettronici, è stato migliorato con l’obiettivo di potenziare il controllo della vettura e valorizzare l’esperienza di guida.

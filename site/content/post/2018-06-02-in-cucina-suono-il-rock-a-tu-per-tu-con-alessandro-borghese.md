@@ -1,0 +1,59 @@
+---
+title: “In cucina suono il rock” – A tu per tu con Alessandro Borghese
+author: Redazione
+type: post
+date: 2018-06-02T08:29:11+00:00
+url: /?p=8757
+colormag_page_layout:
+  - default_layout
+categories:
+  - CULTURA E SPETTACOLO
+tags:
+  - 4 ristoranti
+  - 4 ristoranti borghese
+  - Alessandro Borghese
+  - Borghese
+  - chef
+  - cucina italiana
+  - food italiano
+  - intervista Alessandro Borghese
+  - italian food
+
+---
+<img decoding="async" loading="lazy" class=" wp-image-8761 alignleft" src="https://progressonline.it/wp-content/uploads/2018/06/Cattura5-300x233.png" alt="" width="354" height="275" />Nella stagione d’oro della cucina, che impazza in tv e sui social network, un personaggio spicca come il fortunato apripista di questa felice tendenza, nonché il principe più amato dal popolo degli aficionados: lo chef **Alessandro Borghese**. Protagonista in televisione con i suoi format che sanno presentare al meglio l’universo del buon cibo, declinandolo in una serie infinita di sfaccettature, **Borghese incarna con ironia e savoir faire l’essenza di una passione che rappresenta uno tra gli elementi più preziosi di eccellenza italiana**. La cucina raccontata da Alessandro Borghese è una bella fiaba rock, dal carattere popolare e coinvolgente, perché si apre al pubblico offrendo la possibilità di una condivisione di sapori e valori che assomiglia a una vera e propria festa da vivere giorno per giorno.
+
+**Il cibo è da sempre sinonimo di convivialità, occasione di incontro e di scambio collettivo, oggi è anche grande protagonista in tv e sul web. Non si rischia di andare incontro a una specie di “indigestione”?**
+
+Assolutamente no! Il food ha catturato l’attenzione dei network televisivi e di internet, la cucina è l’anima del nostro Paese, le materie prime sono uniche ed eccezionali, era ora! Oggi abbiamo la fortuna di avere mezzi di comunicazione immediati e diffusivi e chiunque, attraverso la televisione, internet e la stampa, può seguire i procedimenti e i consigli dello Chef preferito. Mi piace essere connesso con il mondo, scoprire le nuove tendenze dell’universo culinario, prendere spunti per migliorare i miei piatti. In Italia abbiamo creato un linguaggio universale sul cibo: pasta, cappuccino, spaghetti, parmigiano, espresso, pizza. Puoi trovarti in un qualsiasi posto all’estero, parlare una lingua non tua, ma la parola “pasta” resta per tutti il sinonimo per eccellenza del Bel Paese. È fondamentale divulgare l’agroalimentare italiano a casa nostra e nel commercio mondiale, finalmente era ora che oltre all’arte, alla storia, al turismo, alla moda e pure al calcio, ci fosse molta attenzione alla nostra cultura gastronomica.
+
+**“Alessandro Borghese 4 ristoranti”, “Alessandro Borghese Kitchen Sound” e “Cuochi d’Italia” sono i format che lei ha portato alla ribalta: cosa li ha resi dei programmi così amati e quali altri progetti vorrebbe realizzare in futuro sul piccolo schermo?<img decoding="async" loading="lazy" class=" wp-image-8762 alignright" src="https://progressonline.it/wp-content/uploads/2018/06/Cattura-300x251.png" alt="" width="341" height="285" />**
+
+La mia carriera di chef è iniziata con una lunga gavetta più di venti anni fa. La televisione e la popolarità sono arrivati nel 2004 e da più di dieci anni sono in onda con i miei programmi di cucina. Sono molto contento di essere stato un anticipatore di questa nuova tendenza, avevo un’idea del successo della cucina in televisione, fin da quando era singolare diventare testimonial di un prodotto gastronomico. La cucina, e tutto ciò che ruota intorno ad essa, genera sviluppo e professioni nuove e originali, qualche anno fa non esistevano tutte queste considerazioni sul cibo e sui tanti volti che ne parlano. Quando ho iniziato a raccontare la cucina italiana attraverso le persone, non immaginavo di diventarne l’esempio. Guardare alcuni programmi e rivedere le caratteristiche dei miei primi format con l’evoluzione di oggi è un enorme successo. Sono in continua evoluzione e con il mio team lavoriamo su nuovi progetti. Sono anche arrivate alcune proposte per girare dei film, mia madre (Barbara Bouchet, ndr) era già attiva con un corso accelerato sulla recitazione, ma, lusingato, ho declinato l’invito. Scrivo. Anche su un magazine dedicato al viaggio. Riordino scene, musica, volti, sorrisi, attimi, poi mi metto davanti alla tastiera e butto giù tutto. Mi dispiace solo non essere ancora riuscito ad uscire dal quinto capitolo del mio romanzo erotico, fermo in una cartella sul desktop. Ma sono concentrato su altro in questo momento.
+
+**Per il suo ristorante milanese, “AB Il lusso della semplicità”, ha scelto un ossimoro: come è possibile conciliare due dimensioni apparentemente antitetiche?**
+
+Mantenere la semplicità in cucina vuol dire tante cose, potrebbe significare ridurre un piatto alla sua forma base o focalizzarsi su un ingrediente per sperimentarne l’essenza. Oppure creare un’atmosfera da Rock Band, dove le diverse parti della cucina si muovono come gli strumenti del concerto. In qualunque caso, “semplice” in una cucina raramente significa “facile”. Quando si entra in cucina c’è studio, progettualità, fantasia, soprattutto se lo stai facendo per qualcuno. Quando si matura professionalmente si procede per sottrazioni più che per addizione. Negli anni ho sperimentato le mode e alla fine ho compreso che i prodotti migliori sono quelli schietti e sinceri che ti andrebbe di mangiare tutta la settimana. Questa è oggi la mia cucina.  
+<!--nextpage-->
+
+  
+**<img decoding="async" loading="lazy" class="wp-image-8759 alignleft" src="https://progressonline.it/wp-content/uploads/2018/06/Cattura3-300x144.png" alt="" width="412" height="198" />Quali sono i 4 ingredienti che proprio non possono mancare nella cucina di Alessandro Borghese?**
+
+Prediligo la stagionalità e la freschezza degli ingredienti. Ogni volta lo scenario cambia di mese in mese. Sicuramente non mancano mai: acciughe, parmigiano, aglio, cipolla, sale, pepe e olio Extra Vergine d’Oliva.
+
+**E se dovesse descrivere la sua personalità attraverso un piatto, cosa ci proporrebbe?**
+
+Sono un imprenditore che vuole esporsi ai rischi che ogni lavoro comporta. La mia società è nata dopo l’incontro con mia moglie. All’epoca Wilma (Oliverio, ndr) lavorava per una multinazionale, insieme abbiamo deciso di dare progettualità alle mie idee. Mio padre sosteneva che bisogna focalizzare l’obiettivo da raggiungere e migliorare continuamente, studiando e impegnandosi a fondo. Mi rivedo sempre nella prossima ricetta che andrò a creare. Sembra uno slogan, ma non lo è.
+
+**Quando ha scelto di dedicarsi alla cucina ha trovato sul suo cammino qualcuno che l’ha ispirata in maniera significativa? Cosa consiglierebbe a un giovane che vuole intraprendere oggi questa avventura?**
+
+Una passione nata a cinque anni: ogni domenica mattina mi svegliavo col profumo del ragù dentro casa. Mi alzavo molto presto e andavo in cucina per osservare le mani di mio padre muoversi in assoluta sicurezza tra fornelli, piatti e coltelli. Il suo sorriso concesso nel descrivermi una ricetta, i suoi consigli come un regalo speciale hanno sviluppato gradualmente la scelta di far diventare una passione una professione. Sono nato a San Francisco e sono cresciuto tra Roma e la California, viaggiare è stato fondamentale per la mia crescita umana e professionale. Quando mi sono imbarcato sulle navi da crociera dopo il diploma, i miei genitori non erano molto d’accordo, ma ho seguito il mio amore per la cucina, il desiderio di continuare a conoscere le materie prime, la curiosità nel vedere realizzato il piatto che avevi pensato, da uno schizzo fatto con i pastelli su un foglio a scuola, fino a riconoscere le forme, i colori, e finalmente il gusto che avevi immaginato.<img decoding="async" loading="lazy" class=" wp-image-8760 alignright" src="https://progressonline.it/wp-content/uploads/2018/06/Cattura4-279x300.png" alt="" width="353" height="379" />
+
+Mio padre era produttore cinematografico e mia madre è un’attrice. E io volevo diventare cuoco. Essere figlio di persone note aumenta la curiosità sulle tue scelte lavorative, rispetto ad altri sei molto più esposto a un morboso e bizzarro interesse nel voler conoscere quello che fai, ma se ti manca il talento e la responsabilità verso il lavoro, non progredisci. Non basta misurarsi con se stessi, serve faticare e sgobbare per conquistare un risultato vincente e ottenere la credibilità necessaria per chi investe con fiducia su di te. Picasso ha detto: “Per mio tormento e forse per mia gioia, io dispongo le cose secondo le mie passioni…”.
+
+L’ispirazione arriva anche uscendo dalla propria cucina e andando per strada, nei mercati, in giro. Sono gli ingredienti che ti parlano, ti provocano, ti comunicano la loro essenza, ti stimolano attraverso i colori, forme, sapore: il rombo vuole essere scottato, la gallinella vuole essere fatta in umido, il gambero di Mazzara appena pescato chiede solo un filo di extra vergine per essere gustato crudo. Chi fa il mio mestiere ha una grande responsabilità in Italia e all’estero. Con il gruppo “Obicà Mozzarella Bar”, con cui collaboro, abbiamo portato la mia cucina Oltreoceano, da Roma passando per New York fino a Los Angeles, comunicando la filosofia del #FoodToShare.
+
+Cucinare vuol dire passione e responsabilità: un atto d’amore ricco di desiderio, impegno, professionalità che ho fortemente voluto far diventare il mio lavoro.
+
+<p style="text-align: right;">
+  Elisabetta Pasca
+</p>

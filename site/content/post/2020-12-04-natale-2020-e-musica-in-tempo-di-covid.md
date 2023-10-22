@@ -1,0 +1,78 @@
+---
+title: Natale 2020, è musica, in tempo di Covid
+author: Redazione
+type: post
+date: 2020-12-04T15:07:35+00:00
+url: /?p=13397
+colormag_page_layout:
+  - default_layout
+categories:
+  - ATTUALITÀ
+  - CULTURA E SPETTACOLO
+tags:
+  - musica
+  - musica italiana
+  - Natale
+  - teatro
+
+---
+Il virus non ferma la musica. Nuove norme di contenimento della pandemia, per tutto il periodo natalizio. La curva epidemica è in calo ma la minaccia persiste e richiede un impegno congiunto locale, nazionale e internazionale per scongiurare le criticità di un eventuale rialzo. E&#8217; una responsabilità soprattutto individuale. 
+
+Indipendentemente dal ‘colore’ legato al rischio effettivo del territorio, dal 21 dicembre al 6 gennaio, divieto di spostamento tra Regioni, e anche tra Comuni il 25, 26 dicembre e il primo gennaio, fatta eccezione per motivi di lavoro o salute, per raggiungere la residenza o per ‘necessità’, con obbligo di autocertificazione. Interdetto lo spostamento anche verso le ‘seconde case’. 
+
+Prorogate le misure di chiusura oraria di bar e ristoranti, chiusi ancora cinema e teatri, piscine e palestre. Fino al 6 gennaio, negozi aperti fino alle 21, per allargare lo shopping ad un arco di tempo più ampio. Stop alla circolazione dalle 22 e messe della vigilia di Natale anticipate. &#8216;Raccomandazione&#8217; di limitare ai conviventi i cenoni a casa.
+
+Anche la stagione sciistica non parte in Italia, con gli impianti chiusi. Alberghi aperti, in montagna, ma con divieto di serate per il 31. Sospese le crociere. Obbligo di quarantena per italiani o stranieri in rientro dall’estero. 
+
+Nelle città ‘sospese’, in un contesto di crisi economica e di disorientamento generale, in questo 2020 senza precedenti, ci prepariamo così al Natale.
+
+In un mondo che ha mutato, all’improvviso, identità e priorità affermando, prepotentemente, la forza del digitale nella didattica a distanza, smart working, incontri, corsi di ginnastica e di ballo, annullando la dicotomia tra reale e virtuale, la sacralità del teatro apre a tutti le sue porte. Per far vivere un’esperienza ‘da remoto’ che è relazione, condivisione e superamento di ogni barriera, nel Natale più difficile.
+
+Colpito duramente il comparto culturale e gli spettacoli, nella lotta agli assembramenti, la grande musica non si arrende e si moltiplicano, dunque, le iniziative per le feste di Natale.
+
+## Una sfida per i più grandi teatri italiani, da Nord a Sud, il “teatro digitale”.  {.wp-block-heading}
+
+Sul podio del **Teatro dell&#8217;Opera di Roma** &#8211; che partecipa all’iniziativa **“Aperti, nonostante tutto”** &#8211; il maestro Daniele Gatti presenta tre concerti sinfonici per la prima volta diffusi gratuitamente sul canale You Tube del Teatro (<https://www.youtube.com/user/operaroma>). Ouverture n.2 di Johann Sebastian Bach, Le tombeau de Couperin di Maurice Ravel e Pulcinella di Igor&#8217; Stravinskij.
+
+L&#8217;11 dicembre, concerto sinfonico diretto dal Maestro Michele Mariotti (Divertimento per piccola orchestra su musiche clavicembalistiche di Couperin, op. 86 di Richard Strauss, Danza degli spiriti beati da Orfeo ed Euridice di Christoph Willibald Gluck, Sinfonia KV 183 in sol minore “La Piccola” di Wolfgang Amadeus Mozart) e, ancora, con il Maestro Daniele Gatti, il 18 dicembre ouverture da Don Giovanni di Wolfgang Amadeus Mozart, op. 65 di Ludwig van Beethoven e Sinfonia n.38 in re maggiore “Sinfonia di Praga”, K 504 di Mozart.
+
+“I tre concerti in streaming assieme al Barbiere di Siviglia (pensato come film su Rai 3) fanno un tutt’uno, una bolla artistica, costruita secondo un&#8217;idea ben precisa di viaggio attraverso la musica barocca e classica e il neoclassicismo”, spiega Gatti. 
+
+&#8220;Con questi concerti in streaming il nostro Teatro cerca di ampliare e abbattere i suoi confini, non solo musicali”, afferma il sovrintendente Carlo Fuortes. “La visione gratuita di questi concerti potrà avvicinare spettatori da tutto il Paese e dal resto del mondo. Come teatro pubblico abbiamo l&#8217;obbligo di portare a tutti i cittadini il piacere della grande musica&#8221;.
+
+Per chi volesse contribuire con un “biglietto virtuale”, donazione alla Fondazione sul sito ufficiale del Teatro con agevolazioni fiscali “ART BONUS” (<https://www.operaroma.it/news/i-love-roma-opera-aperta/>).
+
+Anche Napoli punta sempre di più sulla cultura. Stanziati finanziamenti destinati alla Fondazione Teatro San Carlo di Napoli, oltre che a sostegno della campagna “Procida Capitale italiana della cultura 2022” e alla realizzazione di un&#8217;edizione speciale del Wte Unesco dedicato ai siti Unesco del Mezzogiorno.
+
+Dal **Teatro San Carlo di Napoli**, il più antico teatro lirico al mondo, un progetto innovativo di streaming attraverso i social media grazie a una partnership con Facebook Inc. per allietare le prossime festività natalizie e lenire il senso di amarezza globale.
+
+**“Cavalleria Rusticana”** di Pietro Mascagni fino al 10 dicembre con un cast di grandi voci. Sul podio il Maestro Juraj Valcuha guiderà orchestra e coro. E, poi, “Gala Mozart e Belcanto” dal 10 al 13 dicembre (Mozart, Rossini, Donizetti, Bellini) e il “Concerto di Natale” dal 25 dicembre al 2 gennaio (Nino Rota, Ottorino Respighi, Amilcare Ponchielli). 
+
+Spettacoli fruibili direttamente sulla <a href="https://www.facebook.com/teatrodisancarlo" target="_blank" rel="noreferrer noopener">pagina Facebook del Teatro San Carlo</a>, ove è possibile acquistare i biglietti. Dal 4 al 7 dicembre, quota simbolica di euro 1,09 per lo spettacolo della Cavalleria Rusticana.
+
+A Milano, il **Teatro alla Scala** ha cancellato, a causa del Covid, la campagna abbonamenti. Non accadeva da un secolo. Tempio mondiale della lirica &#8211; fondato per decisione dell&#8217;imperatrice d&#8217;Austria Maria Teresa d&#8217;Asburgo dopo l&#8217;incendio del febbraio 1776 che distrusse il Teatro Regio Ducale – in cui hanno cantato i maggiori artisti lirici e si sono avvicendati famosi direttori d&#8217;orchestra, quali Arturo Toscanini, Herbert von Karajan, Zubin Mehta, Claudio Abbado e Riccardo Muti, la ‘Prima’ con “Lucia di Lammemoor” è stataannullata, per la prima volta dopo la Seconda Guerra Mondiale. Sostituita da un concerto dal titolo dantesco, “[A riveder le stelle” in diretta tv e radio lunedì 7 dicembre][1]. Con la partecipazione di 25 tra i maggiori cantanti del mondo e ballerini scaligeri.
+
+Un secolo di musica e di cultura italiana ed europea, per la ‘prima’ milanese 2020. Con Riccardo Chailly alla guida di Orchestra e Coro del Teatro alla Scala, lo spettacolo, realizzato da Davide Livermore, racconta l’opera e la danza celebrandone il ruolo centrale per la cultura e per la crescita civile del Paese.
+
+Cilea, Verdi, Donizetti, Puccini, Giordano, Rossini, Bizet, Massenet, Wagner nel ricco programma della serata di teatro musicale più famosa del mondo.
+
+La **Cineteca di Milano** propone, fino all&#8217;11 dicembre, la rassegna gratuita in streaming “Scala d&#8217;Archivio”. Rari filmati sui protagonisti del teatro del Piermarini.
+
+Sul <a href="http://cinetecamilano.it/" target="_blank" rel="noreferrer noopener">sito della Cineteca </a>, fruibili i documentari “La grande Scala”(2014)di Sarah Nicorache ricostruisce la gloriosa storia del Teatro alla Scala, “La Scala” (1982), realizzato dal regista teatrale Carlo Cotti, e “16 agosto 1943: Così muore Milano”(1985) di Luciano Arancio, con immagini dei luoghi simbolo della città di Milano colpiti dai bombardamenti.
+
+In programma anche “L’Elisir d&#8217;amore” (1946) di Mario Costa, cineopera tratta dall&#8217;opera lirica di Donizetti, e “Rapsodia Campari” (1960)_,_ pubblicità cinematografica animata firmata da Nino e Toni Pagot, nella quale la città di Milano è lo sfondo di una fantasia musicale, con il suo centro nevralgico al Teatro alla Scala.
+
+Inoltre, on line alcuni importanti servizi del cinegiornale “Ciac Cinecronaca” dedicati alle ‘prime’ del Teatro di Milano e ad importanti eventi operistici con famosi artisti, quali Maria Callas.
+
+Omaggio alla musica ancora in altre città italiane. Per citarne alcune, a **Torino**, in streaming i concerti gratuiti del **Teatro Regio**, sul sito [www.teatroregio.torino.it.][2] E’ possibile fare una donazione o donare il voucher di un biglietto già acquistato. Ricco programma fino al 18 dicembre.
+
+Torneranno a suonare strumenti ad arco plasmati o restaurati da grandi liutai toscani, di ieri e di oggi, fino al 23 dicembre, in versione online, otto appuntamenti in diretta dall’**Auditorium di Santo Stefano al Ponte di Firenze**, da vedere e ascoltare gratuitamente sulla pagina Facebook dell’Orchestra da Camera Fiorentina.
+
+Variazioni o cancellazioni degli eventi potrebbero verificarsi a causa dell&#8217;emergenza! 
+
+Con i concerti in streaming, la musica è ancor più linguaggio universale per giungere al cuore di tutti e al quale affidare la speranza e la voglia di ripartire. Con animo accogliente. Un&#8217;occasione per riflettere. Il Covid non ferma la musica e l’umanità, sia pur ferita. 
+
+Elvira Frojo
+
+ [1]: https://www.mentelocale.it/milano/articoli/87010-prima-scala-2020-parata-stelle-bolle-domingo-dove-quando-vederla.htm
+ [2]: http://www.teatroregio.torino.it.

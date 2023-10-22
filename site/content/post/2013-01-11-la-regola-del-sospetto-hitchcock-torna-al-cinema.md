@@ -1,0 +1,32 @@
+---
+title: 'La regola del sospetto: Hitchcock torna al cinema'
+author: Redazione
+type: post
+date: 2013-01-10T23:00:00+00:00
+url: /?p=2913
+post_views_count:
+  - 10
+  - 10
+categories:
+  - CULTURA E SPETTACOLO
+
+---
+&nbsp;
+
+**La regola del sospetto &egrave; uno degli assiomi del cinema hitchcockiano**; &egrave; il cardine che sorregge la curiosit&agrave; dello spettatore quando la protagonista del film che egli sta vedendo muore subito (Psyco &#8211; 1960). Il sospetto &egrave; attendere le conseguenze per James Stewart, fotoreporter malconcio che spia ogni giorno il vicino Raymond Burr (La finestra sul cortile &#8211; 1954). Il sospetto &egrave; intuire che Ambrose Chapel non &egrave; qualcuno, ma qualcosa (L&rsquo;uomo che sapeva troppo &#8211; 1956). Il sospetto &egrave; cercare le prove che spieghino come dei benestanti studenti annoiati possano aver assassinato un loro amico e organizzato una festa in casa del morto (Nodo alla gola &#8211; 1948). E s&igrave;, Il sospetto (1941) &egrave; anche il titolo di uno dei pi&ugrave; celebri film del maestro del brivido, chiuso dalla paura che il marito Cary Grant abbia ucciso la moglie Joan Fontaine al termine dei titoli di coda, con un bicchiere di latte avvelenato. Non si offender&agrave;, dunque, quel birichino di Hitch, se &ldquo;sospettiamo&rdquo; che non abbia imparato nulla dalla lezione impartitagli dai genitori, che a quattro anni lo lasciarono un&rsquo;intera mattinata chiuso in carcere, convinti che avesse combinato qualche marachella.&nbsp;
+
+&nbsp;
+
+**A questa sadica idea di cinema si &egrave; ispirato Sir Anthony Hopkins** in Hitchcock, biopic di Sacha Gervasi che ripercorre proprio la genesi filmica di Psyco, attraverso un ormai consueto gioco di influenze tra finzione e realt&agrave;, con Helen Mirren che interpreta la criptica moglie Alma, neanche fosse l&rsquo;eminenza grigia dietro al miglior regista della Storia del Cinema. Di certo il mito della vertigine hitchcockiana si alimenta della fama e del carisma del suo autore, un totalitarista della messa in scena che scioglieva matasse narrative come un abile burattinaio. Attori o marionette, poco importava a quell&rsquo;inglese pacioso e grasso, che amava le torte al pari dei suoi film, e che si distinse sempre per la meticolosa scelta dei suoi protagonisti, cos&igrave; perfettamente aderenti all&rsquo;ideale fisico pensato per i personaggi, che li catapultava senza remore nella bufera della sua placida cattiveria. E si chiamavano James Stewart (l&rsquo;uomo mite per antonomasia), Cary Grant (il fascinoso figlio di puttana), Anthony Perkins (il fragile, lo psicopatico). Ma soprattutto erano Ingrid Bergman, Vera Miles, Alida Valli, Eve Marie Saint (le certezze), o ancora Greta Garbo ed Audrey Hepburn (storici i loro rifiuti); queste furono le donne che egli possedette con il voyeurismo della sua macchina da presa, le spogli&ograve;, le costrinse a fare l&rsquo;amore con lo spettatore impaurito e impotente. Del resto, come &egrave; possibile indugiare di fronte al piacere delle gambe nude di Janet Leigh, malgrado il sangue nella doccia; o ignorare la bellezza di Kim Novak mentre precipita dal campanile (La donna che visse due volte &#8211; 1958); o rimanere indifferenti al bel canto di Doris Day, sincopata dalla paura per la vita del figlioletto rapito (L&rsquo;uomo che sapeva troppo). Una diabolica deificazione della bellezza che in Hitchcock evidenziava i due poli di amore ed odio nella sua vacillante percezione del corpo femminile. Ecco quindi i miti hitchcockiani per eccellenza: Grace Kelly e Tippi Hedren. Della prima si sa tutto, bellissima, borghese ed eterea, l&rsquo;unica attrice libera di imporsi sul suo personaggio, amata come un sogno e per la quale Sir Alfred cre&ograve; il celebre ossimoro di &ldquo;ghiaccio bollente&rdquo;. Tippi Hedren fu forse l&rsquo;ossessione, perch&eacute; ecliss&ograve; a tal punto il ricordo di Grace Kelly, che il regista temette davvero di dimenticarla. Laddove la Principessa di Monaco era ironica (Caccia al ladro &#8211; 1955), Tippi Hedren era marmorea (Gli uccelli &ndash; 1963); se l&rsquo;una era sensuale (La finestra sul cortile -1954), l&rsquo;altra era frigida (Marnie &#8211; 1964) e quando la prima uccideva per difendersi, innescando la legittimit&agrave; del crimine (Delitto perfetto &#8211; 1954), l&rsquo;altra uccideva per difendere, creando un complesso di colpa allucinante (ancora Marnie). E il sospetto che le torture fisiche e psicologiche imposte da Hitchcock all&rsquo;attrice fossero solo l&rsquo;escamotage inconscio per vendicare l&rsquo;idealizzazione del ricordo della Kelly &egrave; quanto mai persistente. Ne sa qualcosa Melanie Griffith, figlia della Hedren e futura musa di Brian De Palma (il pi&ugrave; geniale emulo dell&rsquo;indottrinamento hitchcockiano), che da bambina si vide regalare da quel sornione e pingue signore inglese una bambolina decapitata, vestita come la mamma.&nbsp;
+
+&nbsp;
+
+**Sul set de Gli uccelli Hitchcock aveva applicato agli abiti di Tippi Hedren** dei sottili nastri invisibili legati alle zampe di grossi piccioni tenuti a stecchetto; la regia diede un pauroso dinamismo centripeto alla scena dell&rsquo;attacco di quei volatili sul corpo inerme della protagonista, ma l&rsquo;attrice sub&igrave; un esaurimento nervoso per le ferite riportate sul volto e sulla testa, perch&eacute; quei pennuti affamati miravano col becco ai suoi occhi. Ancora una volta fili e corde per esaltare il metteur en sc&egrave;ne hitchcockiano. Eppure questo autore di capolavori che continuano a segnare l&#8217;immaginario collettivo, fu considerato per troppo tempo solo un abile intrattenitore. Esaltato prima dalla critica francese di Truffaut e Chabrol, e solo dieci anni dopo rivalutato anche dagli americani, Alfred Hitchcock non si offese mai per la scarsa considerazione accademica, ma pretese che sulla sua tomba l&rsquo;epitaffio recitasse: &ldquo;Vedi che ti succede se non fai il bravo?&rdquo;. Forse &egrave; troppo programmatico pensare che a quattro anni il bambino Alfred avesse strizzato l&rsquo;occhio ai suoi genitori, convinti di punirlo con pochi minuti di carcere, ma credere che nel suo ultimo film, che si intitola Complotto di famiglia (1976), egli si sia voluto vendicare affidando il suo commiato all&rsquo;occhiolino finale della protagonista Barbara Harris, indirizzato proprio al pubblico, questo &egrave; un sospetto non da poco.
+
+&nbsp;
+
+di **Claudio Salvati**
+
+<div>
+  &nbsp;
+</div>

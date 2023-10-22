@@ -1,0 +1,32 @@
+---
+title: Woodstock. Rock save the world
+author: Redazione
+type: post
+date: 2009-08-07T22:00:00+00:00
+url: /?p=2987
+post_views_count:
+  - 0
+  - 0
+categories:
+  - CULTURA E SPETTACOLO
+
+---
+Quella volta, qualcosa cambi&ograve; e per sempre, nella mente di chi c&#8217;era e nell&#8217;esistenza di un intero, grande (e contraddittorio) paese. Quell&#8217;anno, era il 1969, la storia stava scrivendo pagine fondamentali, pi&ugrave; importanti di qualsiasi concerto. E invece, per tre giorni, tutto si ferma. O meglio, tutto continua, ma sembra fermarsi. Sotto i suoni, anzi i colpi, di qualche chitarra, delle droghe allucinogene e di migliaia e migliaia di corpi infangati, spesso nudi e, soprattutto, liberi. A Woodstock doveva essere un festival. Storico, certo: trentadue artisti, tra i migliori di allora, &ldquo;il pi&ugrave; grande spettacolo rock di tutti i tempi&rdquo;. E&#8217; stato molto di pi&ugrave;. E&#8217; stato il viaggio sognante dell&#8217;Altra America, quella che nel fango ascoltava le ipnotiche note di Joplin e Baez (sul palco al sesto mese di gravidanza), il gioioso inno di Freedom, completamente improvvisato da Richie Havens, le inarrivabili avventure psichedeliche di Jefferson Airplane e Grateful Dead, le schitarrate di Carlos Santana, che suona strafatto di mescalina e trascina tutti al ritmo della sua delirante Soul Sacrifice. E&#8217; l&#8217;America che condivide e partecipa alla splendida rabbia generazionale degli Who, che guarda le loro chitarre infrangersi sugli amplificatori e volare sulle loro stesse teste, in gesti tanto incomprensibili quanto pieni di significato. E&#8217; la stessa America che lottava pacificamente per i diritti civili, il femminismo e contro le politiche della Guerra Fredda, ben pi&ugrave; folli del denigrato stile di vita hippie, contro una guerra che non poteva capire e che bruciava vite inutilmente, laggi&ugrave; in Vietnam.
+
+&nbsp;
+
+La festa di Woodstock si materializz&ograve; a 80 miglia a Nord di New York City, nella cittadina di Bethel, ma l&#8217;utopico urlo di quelli che vi hanno partecipato si ud&igrave; ovunque nel pianeta ed &egrave; diventato il simbolo della rivoluzione culturale di quegli anni. Non era facile, negli iper&#45;conservatori States. Per una volta, la giovinezza vinse e furono davvero &ldquo;3 days of peace and music&rdquo;. Eppure, l&#8217;idea degli organizzatori era tutt&#8217;altro che idealistica. Lo spirito della capitalistica Woodstock Venture, la societ&agrave; che mise in piedi il festival, era quasi all&#8217;opposto rispetto al movimento che si apprestava inconsciamente a rappresentare. Il festival di Woodstock, inizialmente, era nulla pi&ugrave; che un&#8217;iniziativa commerciale, messa in piedi grazie ad un annuncio sul New York Times. Un modo come un altro di guadagnare qualche soldo. Le previsioni, tra l&#8217;altro, erano modeste. 50.000 persone attese a 6 dollari al giorno, il 15 agosto sono diventate 500.000 e poi un&#8217;intera generazione. Giovani spensierati e festanti, che probabilmente non potevano capire a fondo il significato di quello che stavano vivendo. Avrebbero continuato a ballare e a rotolarsi nel fango ancora a lungo, nudi e liberi, e a fare l&#8217;amore nelle tende e tra i prati, senza aver paura di nulla, senza molti pensieri.
+
+Nulla sembrava poterli fermare, non c&#8217;&egrave; riuscita la pioggia, il diluvio, non c&#8217;&egrave; riuscita la forza autodistruttiva delle droghe. L&#8217;idealistico sogno di pace sarebbe continuato. Fino al risveglio, che fu sferzante e crudele, ma al tempo dolce e immensamente iconico. Le stridule corde della Stratocaster pi&ugrave; leggendaria di tutte vibrarono e risuonarono tra il pubblico sfinito e infinito. Il capo chino, il volto coperto da sporchi riccioli neri, gli occhi chiusi di un meticcio che ha cambiato il modo di vivere la musica. Jimi Hendrix, sull&#8217;infernale sfondo del Vietnam, a pochi giorni dal sangue di Martin Luther King, di Kennedy e dei loro ideali crudelmente infranti, dipinge Star Spangled Banner, il distorto inno americano che colpisce inesorabilmente tutti i presenti e li riporta sulla terra.
+
+&nbsp;
+
+Le note si trasformano in assordanti B52, in esplosioni impressionanti. Dalle dita di Hendrix non esce pi&ugrave; soltanto musica, ma tutto il mondo reale, fatto di violenza, interessi economici e di tante altre piccole e grandi cose che la Woodstock Nation non poteva pi&ugrave; sopportare. E allora l&#8217;enorme spiazzo del concerto smette improvvisamente di essere l&#8217;idealistico paradiso della cultura alternativa degli anni &#8217;60 e Bethel torna ad essere una semplice ordinaria cittadina, in quel mondo che di pace e amore preferiva non sentirne parlare.
+
+&nbsp;
+
+Ormai, sono passati quarant&#8217;anni da quel leggendario week end. Oggi, lo spirito di quella festa &egrave; lontano pi&ugrave; che mai. Gli ideali di condivisione e solidariet&agrave; di allora hanno lasciato il posto all&#8217;individualismo e al consumismo della I&#45;pod generation. Il mito del festival statunitense, per&ograve;, rimane. Torna utile alle case discografiche, con i diritti degli artisti di allora, alle case editrici e di produzione cinematografica, che in occasione del quadriennale tempestano di libri e documentari (in triplo dvd in confezione deluxe) i megastore dei centri commerciali (non mancano, per&ograve;, le opere di spessore, come &ldquo;Taking Woodstock&rdquo;, diretto da Ang Lee). Torna utile persino ad un museo. Al posto delle tende e del fango, oggi, nella campagna di Bethel, sorge un centro culturale da 100 milioni di dollari, con auditorium e museo. All&#8217;interno, una collezione permanente di opere, video e cimeli per celebrare il festival musicale. E&#8217; facile immaginare quanto un&#8217;iniziativa del genere possa far storcere il naso ai puristi di Woodstock, non certo felici di vedere i luoghi dell&#8217;amato festival al servizio del business. D&#8217;altra parte, lo stesso Michael Lang, principale organizzatore del festival del &#8217;69, ha pubblicato un libro per Arcana Edizioni, &ldquo;Woodstock&rdquo;, che per&ograve;, tra tutte le iniziative celebrative, &egrave; la pi&ugrave; interessante, non foss&#8217;altro perch&egrave; il promotore dello storico concerto racconta le diverse tappe che hanno portato all&#8217;organizzazione del concerto.
+
+&nbsp;
+
+**Aldo Gianfrate**

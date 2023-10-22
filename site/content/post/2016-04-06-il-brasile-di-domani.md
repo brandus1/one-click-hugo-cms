@@ -1,0 +1,121 @@
+---
+title: Il Brasile di domani
+author: Redazione
+type: post
+date: 2016-04-05T22:00:00+00:00
+url: /?p=4186
+post_views_count:
+  - 19
+  - 20
+slide_template:
+  - default
+  - default
+vc_teaser:
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+td_post_theme_settings:
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_1";}'
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_1";}'
+categories:
+  - ATTUALITÀ
+
+---
+Luci ed ombre della “Cidade Maravilhosa”, tra grandi opere, promesse disattese e le Olimpiadi ormai dietro l&#8217;angolo
+
+<div>
+</div>
+
+<div>
+  di Marco Notaroberto da Silva
+</div>
+
+<div>
+</div>
+
+<div>
+</div>
+
+<div>
+  Domani prenderemo un treno. Non farà molta strada, continuerà a girare in tondo per il centro cittadino mostrando ai turisti e agli abitanti la zona del porto. Sì, domani prenderemo un treno che assomiglia molto ai convogli che tagliav<br /> ano le strade della Rio de Janeiro imperiale, ma che non lo è. È un esemplare unico in America Latina – lo sentiamo ripetere spesso e con molto orgoglio &#8211; , ma è anche il riflesso di qualcosa che non esiste.
+</div>
+
+<div>
+  Il VLT (Veículo Leve sobre Trilhos – pioneriostico mezzo di trasporto elettrico e senza fili) è una delle tante opere che rientrano nel progetto di riqualificazione del porto carioca «Porto Maravilha», simbolo dell&#8217;eredità che i Giochi Olimpici (si suppone) lasceranno alla città.<img decoding="async" loading="lazy" class="size-medium wp-image-4364 alignright" src="https://progressonline.it/wp-content/uploads/VLT-Rio-300x200.jpg" alt="VLT Rio" width="300" height="200" />
+</div>
+
+<div>
+  Prendendo ad esempio Barcellona, sede delle Olimpiadi del 1992, Rio ha deciso d&#8217;investire in un&#8217;area della città scurita dal tempo e dalla fatica.
+</div>
+
+<div>
+  Che si aprano i porti, dunque! Quartieri storici, prima di difficile accesso, che ora vengono riurbanizzati e decorati con attrazioni a misura di turista, come il nuovo Acquario cittadino.
+</div>
+
+<div>
+  Le opere, il cui scopo è quello di rendere la città più smart e vivibile, hanno fatto sì che si aprissero più di 4,8 chilometri di tunnel, sostituendo le vecchie “avenidas” e sopraelevate con strade veloci, progetti per l&#8217;innesto di piste ciclabili, per l&#8217;utilizzo di fonti energetiche naturali e opere di bonifica, attenzioni che questa regione abbandonata non riceveva da tempo.
+</div>
+
+<div>
+  E questa è solo una parte del lascito olimpico, da cui non è ancora dato sapere<img decoding="async" loading="lazy" class="size-medium wp-image-4363 alignleft" src="https://progressonline.it/wp-content/uploads/Novo-porto-Rio-300x169.jpg" alt="Novo porto Rio" width="300" height="169" /> né prevedere se la popolazione trarrà giovamento. La “cidade maravilhosa” oggi con il suo Porto Maravilha, è una citta  apertamente e, talvolta, esclusiavemente, turistica.
+</div>
+
+<div>
+  Rio accoglierà a braccia aperte le migliaia di persone che accorreranno per le Olimpiadi e le casse dello Stato, avide nel ricevere ciò che lasceranno i turisti di tutto il mondo, non si sono affatto risparmiate per offrire ancora uno spettacolo nella città degli spettacoli.
+</div>
+
+<div>
+</div>
+
+<div>
+  I turisti potranno ammirare nel nuovo porto il “Museo del Domani”, l&#8217;opera architettonica che ne rappresenta la rivitalizzazione. La sede del museo, situata in Praça Mauá, luogo simbolo del boom commerciale e industriale della città all&#8217;inizio del XX secolo, è stata progettata dall&#8217;architetto spagnolo Santiago Calatrava e con le sue ali ultramoderne in metallo bianco perlato legittima l&#8217;arrivo del futuro in città, proprio attraverso quei porti da cui la città ha avuto origine.
+</div>
+
+<div>
+  Una struttura costata più di 230 milioni di reais (quasi 57 milioni di euro) dedicata alla ricerca scientifica, principalmente in fatto di clima e ambiente, che , paradossalmente, sorge sulla discussa baia di Guanabara, punto focale dell&#8217;attenzione del Comitato Olimpico durante tutto il lungo processo di adeguamento della città e, ciononostante, ancora preda di un incontenibile inquinamento .
+</div>
+
+<div>
+  La promessa di bonifica della baia, che insieme alla conformazione stessa della citta ne fa la bellezza che è, è già qualcosa di obsoleto.
+</div>
+
+<div>
+  Mi ricordo anni fa, quando ero ancora un bambino, di un  incontro tra il governo giapponese e quello brasiliano in cui già si parlava di bonifica. Dicono che il sostegno finanziario sia arrivato, ma la baia non è stata ripulita e il denaro è sparito, misteriosamente.
+</div>
+
+<div>
+  Ricordo anche la promessa fatta dal governo nel 2009, anno in cui Rio de Janeiro vinse la concorrenza di Madrid, Tokio e Chicago per ospitare le Olimpiadi, che quella stessa baia sarebbe stata bonificata in vista dei giochi. Ancora non è accaduto.
+</div>
+
+<div>
+  Così torno a pensare a quell&#8217;eredità. Un parola tanto usata dai politici per schivare le domande dei cittadini sulle cifre astronomiche investite per ospitare l&#8217;evento e sulla sua perdita di significato.
+</div>
+
+<div>
+  Credo che la città trarrà qualche guadagno da tutte queste costose opere sorte intorno al porto, il che non vuole dire che accadrà lo stesso per il popolo carioca, a cui mancano ancora servizi di base ben più urgenti di treni veloci e musei. Salute, sicurezza e risanamento sono soltanto le prime richieste di una lunga lista che continua ad allungarsi.
+</div>
+
+<div>
+  La questione principale che tende a oscurare grandi eventi come le Olimpiadi e i Mondiali è proprio questa: il volere del popolo sarà mai considerato? Siamo destinati a vivere in balia dello Stato? Per ciò che vedo la risposta e ovvia e amara.
+</div>
+
+<div>
+  Il domani è ancora avvolto in una densa penombra e non c&#8217;è modo di sapere se le Olimpiadi lasceranno effettivamente il tanto famoso e citato lascito.
+</div>
+
+<div>
+  Un segno sul volto della città lo lasceranno di certo, non resta altro che scoprire se sarà solo l&#8217;ennesimo tocco di trucco, a cui i carioca sono ormai abituati, prima da ammirare e poi da lamentare.
+</div>
+
+<div>
+  Rio de Janeiro, più di qualsiasi altra città, simboleggia il Brasile, un paese che da molto porta il baluardo della nazione del futuro. È il baluardo si è ormai arrugginito, e il nostro “tomorrow, never come”.
+</div>
+
+<div>
+  Il pericolo più grande è che faccia la fine del tanto agognato VLT, passando la vita a girare in tondo senza mai arrivare a un capolinea.
+</div>
+
+<div>
+</div>
+
+<div>
+</div>

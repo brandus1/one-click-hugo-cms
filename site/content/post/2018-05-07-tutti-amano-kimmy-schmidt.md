@@ -1,0 +1,34 @@
+---
+title: Tutti amano Kimmy Schmidt
+author: Redazione
+type: post
+date: 2018-05-07T10:10:08+00:00
+url: /?p=8501
+colormag_page_layout:
+  - default_layout
+categories:
+  - CULTURA E SPETTACOLO
+tags:
+  - Kimmy Schmidt
+  - netflix maggio uscite
+  - serie tv maggio
+  - serie tv netflix maggio
+  - the unbreakable Kimmy Schmidt
+  - tutti amano Kimmy Schmidt
+
+---
+<img decoding="async" loading="lazy" class=" wp-image-8503 alignleft" src="https://progressonline.it/wp-content/uploads/2018/05/unbreakable-kimmy-schmidt-1-300x300.jpg" alt="" width="339" height="339" />Gli appassionati di serie tv alla perenne ricerca di qualcosa di davvero dirompente nella marea sterminata dell’offerta streaming possono fare i salti di gioia per il **ritorno di una delle produzioni più brillanti e divertenti degli ultimi anni**: a partire da maggio torna infatti su Netflix per la sua quarta stagione la serie “**The Unbreakable Kimmy Schmidt**”.
+
+Molto apprezzato dal pubblico, lo show ha riscosso anche diversi riconoscimenti da parte della critica per il suo andamento spiazzante e imprevedibile: **le prime due stagioni sono state candidate a ben sette Emmy Awards, incluso quello per la categoria di Miglior Serie Comica**. La stralunata serie, prevista all’inizio sulla NBC ma comprata poi da Netflix, è stata partorita dalle menti frenetiche di due geniacci del genere come Tina Fey e Robert Carlock. Tina e Robert, insieme a Jeff Richmond e David Miner, sono anche i produttori esecutivi e la Fey è apparsa più volte tra le guest star della serie in più ruoli, dal procuratore incapace alla fine della prima stagione alla terapista di Kimmy nella stagione successiva. Ma la Fey è solo una delle numerose guest apparse nello show: Anna Camp, Josh Charles, David Cross, Amy Sedaris, Daveed Diggs, solo per citarne alcune. E poi, Ray Liotta, Fred Armisen, Maya Rudolph, Jeff Goldblum, Ice-T, per citarne altre.
+
+**La protagonista dello show è però Kimmy Schmidt**, interpretata dalla simpatica attrice dai capelli fulvi Ellie Kemper, una ventinovenne rimasta segregata per 15 anni in un bunker assieme ad altre tre donne, tenute prigioniere da un santone folle, il Reverendo Richard Wayne Gary Wayne, a cui dà il volto niente meno che la star di Mad Men John Hamm. Liberata finalmente dalla polizia, Kimmy tenta di ricostruirsi una vita a New York, dove viene fortuitamente impiegata come tata dalla viziata e superficiale Jacqueline Voorhees (Jane Krakowski), mentre condivide un appartamento con lo spumeggiante Titus Andromedon (Titus Burgess), aspirante star di Broadway. La loro padrona di casa è la stramba Lillian Kaushtupper (Carol Kane), una donna dal cuore d’oro che all’occorrenza sa tirare fuori le unghie, coinvolta in una quantità impressionante di attività non proprio limpide.  
+<!--nextpage-->
+
+  
+<img decoding="async" loading="lazy" class=" wp-image-8505 alignleft" src="https://progressonline.it/wp-content/uploads/2018/05/unbreakable-kimmy-schmidt-cover-300x150.jpg" alt="" width="352" height="176" /> Nella terza stagione abbiamo scoperto che Kimmy era sposata con il Reverendo quando lui ha reclamato i documenti del divorzio per sposare un’altra ragazza, Wendy Herbert, interpretata da Laura Dern. Kimmy però si è rifiutata di firmare per evitare alla ragazza il suo destino di vittima di uno stramboide. Kimmy successivamente si è iscritta all’università, ma non ha funzionato e **l’abbiamo lasciata alla ricerca del lavoro della vita**. Nel frattempo Titus ha cercato di tornare con l’ex fidanzato Mikey – dopo aver rotto con lui per un presunto tradimento – ma senza riuscirci. Per la nuova stagione sono state annunciate un paio di novità interessanti: innanzitutto la stagione sarà suddivisa in due parti, la prima verrà rilasciata il 30 maggio, mentre la seconda verrà resa disponibile nei mesi successivi del 2018. Ci si chiede il perché di questa scelta inusuale e subito sale l’hype per le eventuali sorprese che gli showrunner avranno ideato nell’elaborazione della nuova formula.<img decoding="async" loading="lazy" class=" wp-image-8502 alignright" src="https://progressonline.it/wp-content/uploads/2018/05/Unbreakable-Kimmy-Schmidt-300x201.jpg" alt="" width="342" height="229" />
+
+Di sicuro, i primi 6 episodi dovranno necessariamente concludersi con un colpo di scena bomba in favore di aficionados, tale da far contare loro i giorni che li separano dalla continuazione della storia. L’altra news appetitosa sulla quarta stagione riguarda una new entry nel cast abituale. Si tratta della biondissima 38enne Elisabeth Jean Philipps, meglio nota come Busy Philipps, celebre soprattutto per il ruolo di Laurie Keller in Cougar Town. Ad annunciare la notizia è stata la stessa Busy, attraverso Instagram, pubblicando una foto che la vede al fianco di Carol Kane, la mitica Lilian Kaushtupper della serie Netflix. “Quanto sono fortunata a lavorare con questa ICONA?” ha scritto la Phillips, evidentemente galvanizzata per l’opportunità. L’attrice americana è nota soprattutto per i suoi ruoli in Freaks and Geeks, Dawson’s Creek, Love Inc., E.R., Terminator: The Sarah Connor Chronicles, Cougar Town e Vice Principals. Unbreakable Kimmy Schmidt le permetterà di lavorare nuovamente con Tina Fey dopo il pilot di The Sackett Sisters, rifiutato dalla NBC.  
+<!--nextpage-->
+
+  
+<img decoding="async" loading="lazy" class=" wp-image-8504 alignleft" src="https://progressonline.it/wp-content/uploads/2018/05/Unbreakable-Kimmy-Schmidt-copertina-300x150.jpg" alt="" width="356" height="178" /> **La serie di Kimmy piace per il suo umorismo a tratti surreale e per l’intelligenza con cui tratteggia la figura di una ex vittima**, emancipandola dal ruolo di soggetto da compatire per trasformarla in una donna alla ricerca del proprio posto nel mondo, armata di volontà e voglia di accrescere la propria consapevolezza e sperimentare i propri mezzi. Robert Carlock, co-showrunner della serie, autore anche del successo di 30 Rock, ha sottolineato non a caso che la scrittura di questa stagione è stata inevitabilmente influenzata dal movimento #MeToo. “Il movimento #MeToo e l’ondata di accuse di molestie sessuali sono molto presenti, specialmente nella prima parte della stagione. Kimmy si confronterà con varie situazioni sul posto di lavoro. **È la prima volta che si trova in un posto di lavoro, e questo cambia le regole**. Quel movimento, che se ne parli espressamente o meno, è molto presente nel modo in cui Kimmy guarda il mondo, parliamo di qualcuno che rappresenta la liberazione da quanto avvenuto e la speranza che non sia troppo tardi per le altre persone.” Le aspettative sono altissime dunque, anche da parte di tutta la comunità LGBT, che ha inserito di diritto il personaggio di Titus nell’Olimpo dei beniamini. **Perciò, in attesa del 30 maggio, non ci resta che brindare con un buon Pinot Noir**.

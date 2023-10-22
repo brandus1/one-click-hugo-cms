@@ -1,0 +1,29 @@
+---
+title: KIKO MILANO 20 ANNI DI BELLEZZA ITALIANA
+author: Redazione
+type: post
+date: 2017-08-29T08:20:36+00:00
+url: /?p=6310
+colormag_page_layout:
+  - default_layout
+categories:
+  - ATTUALITÀ
+  - CULTURA E SPETTACOLO
+tags:
+  - 20
+  - anni
+  - brand
+  - CEO
+  - design
+  - Italia
+  - Kiko Milano
+
+---
+Non sempre il tempo è nemico della bellezza: gli anni che passano in alcuni specialissimi casi possono essere amici del fascino e rappresentare quel tocco magico in più in grado di aumentare in maniera esponenziale il valore del bello, arricchendolo di esperienza e savoir faire. Così 20 anni per Kiko Milano, il più grande brand italiano di cosmetica nel mondo, costituiscono un traguardo sfavillante che conferma la formidabilità di un marchio nato già con le idee ben chiare nel 1997, dalle menti appassionate di Stefano e Antonio Percassi. Unire stile, eleganza e qualità a un&#8217;idea di bellezza sopraffina ma accessibile a tutte è stata l&#8217;intuizione dei Percassi che oggi, nel 2017, si ritrova consolidata in una realtà commerciale e fashion apprezzata e riconosciuta in Italia e all&#8217;estero. Il legame con la galassia della moda è ben presente fin dagli albori della storia di Kiko Milano, tanto che il primo punto vendita, aperto il primo settembre 1997, sorge non a caso all’interno dello storico negozio milanese di Fiorucci. Il design curato in ogni dettaglio dei primi store monomarca viene realizzato da due architetti stimati e di esperienza come Francesco e Alessandro Mendini. In un percorso di crescita lungo vent’anni, Kiko è stato capace di conquistare, dentro e fuori i confini italiani, la fiducia delle beauty addicted più severe, proponendo una gamma di prodotti dall&#8217;infinità varietà di sfumature e texture, accontentando ogni esigenza di make-up professionale e personalizzato, sempre all&#8217;avanguardia con le tendenze e le evoluzioni dello style e della moda. Kiko è divantato ormai sinonimo colore, divertimento, innovazione e sperimentazione, riuscendo a guadagnare oggi un suo spazio di mercato in ben venti paesi con più di mille store, un terzo dei quali dislocati in Italia. Il brand ha una diffusione capillare in Europa oltre a Turchia, Medio Oriente , Stati Uniti, Hong Kong, India e Brasile ed è presente anche on line in 36 paesi con il proprio sito attivissimo anche sul versante e-commerce [(www.kikocosmetics.com][1]).
+
+Il 2017 segna con evidenza una tappa importante nella storia di Kiko Milano, che raggiunge la sua piena maturità e si attesta nel suo segmento quale espressione dell’italianità moderna, promuovendo arte, moda e design con una gamma di oltre millequattrocento prodotti tra make-up, skincare, accessori beauty e oltre mille prodotti nuovi che ogni anno vengono elaborati e distribuiti in collezioni di largo consumo o a edizione limitata. Dopo gli esordi dei primi store milanesi, tocca all’architetto Massimo Losaghini e poi all’architetto giapponese di fama mondiale Kengo Kuma occuparsi del design dei punti vendita: anche il concept dei negozi Kiko riflette appieno la personalità del brand puntando con decisione su un&#8217;idea di architettura improntata al dinamismo e all&#8217;inesausta evoluzione. La clientela può usufruire di ambienti divertenti, innovativi e oggi anche sostenibili, tecnologici e legati al mondo delle social community, in coerenza totale con le esigenze di bellezza di una donna padrona del suo tempo e sempre all&#8217;avanguardia rispetto ad ogni cambiamento. Per celebrare il ventesimo compleanno, Kiko ha poi inaugurato un&#8217;importante collaborazione con Vogue Italia: la testata, Bibbia della moda per antonomasia, ha selezionato per l’occasione sette brand internazionali legati a stilisti emergenti. I designer, scelti all’interno del progetto Vogue Talents, si sono dedicati a sublimare l’essenza stessa di Kiko e i suoi valori più importanti: il colore, la creatività, il talento e lo stile made in Italy. Da questo stimolo fondamentale, gli stilisti prescelti sono riusciti a trarre l&#8217;ispirazione per creare sette incredibili capsule collection in edizione limitata. Il ciclo esclusivo ha debuttato a marzo e si concluderà a novembre 2017, per coprire adeguatamente l&#8217;intero arco di festeggiamenti del ventennale.  
+“Una crescita esponenziale e costante, quella di Kiko nei suoi primi vent’anni” sostiene Stefano Percassi, fondatore e CEO di Kiko Milano. “Il segreto sta nel non fermarsi mai, sempre alla ricerca di soluzioni innovative in grado di soddisfare le esigenze dei clienti, spinti dal desiderio di una continua evoluzione. Il modo migliore per celebrare questi primi venti anni del brand Kiko è proprio credere nella fantasia di un gruppo di giovani capaci di imprimere con forza e far risaltare le prerogative insite nel DNA del marchio: italianità, sperimentazione, innovazione e stile”.
+
+Elisabetta Pasca
+
+ [1]: https://(www.kikocosmetics.com

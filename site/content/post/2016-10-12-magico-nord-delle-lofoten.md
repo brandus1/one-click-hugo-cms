@@ -1,0 +1,47 @@
+---
+title: Il magico nord delle Lofoten
+author: Redazione
+type: post
+date: 2016-10-12T09:15:14+00:00
+url: /?p=5295
+slide_template:
+  - default
+  - default
+vc_teaser:
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+td_post_theme_settings:
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_4";}'
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_4";}'
+post_views_count:
+  - 36
+  - 36
+categories:
+  - VIAGGI
+tags:
+  - aurora boreale
+  - birdwatching
+  - Europa
+  - isole
+  - Lofoten
+  - mete 2016
+  - news viaggi
+  - Nord
+  - Norvegia
+  - Skyline
+  - Viaggi
+
+---
+_Arduo trovare un aggettivo che possa descrivere al meglio le Lofoten, se non paragonando questo arcipelago ad un concentrato di quanto meglio ha da offrire, paesaggisticamente parlando, la Norvegia_
+
+Sette isole che incantano per il loro aspetto selvaggio, caratterizzato da vette impervie che cadono a picco sul mare, da profondi fiordi che ne ricamano le frastagliatissime coste, e da valli verdissime battute dai venti, gli stessi che durante tutto l’anno sono l’elemento fondamentale per il processo di essiccazione del merluzzo (stoccafisso) che ritroviamo diffusissimo in queste coste appeso a tralicci di legno.  
+Provenendo in traghetto<img decoding="async" loading="lazy" class="size-medium wp-image-5296 alignleft" src="https://progressonline.it/wp-content/uploads/2016/10/00-Mappa-Lofoten-300x250.jpg" alt="00-Mappa Lofoten" width="300" height="250" /> da Bodø, si raggiunge l’isola di Moskenesøy – dominata dalla vetta del monte Hermannsdalstind (1020 s.l.m.) – dove ad attendere il turista è il caratteristico villaggio di pescatori dal curioso nome di Å, contraddistinto da case rosse e bianche – le cosiddette “rorbu” – la cui visita ci immerge nella millenaria storia dell’attività peschereccia dei suoi abitanti: sin dal 1000 dC lo stoccafisso è il prodotto più esportato delle Lofoten.  
+Proseguendo la E10 che attraversa, senza soluzione di continuità, cinque delle sette isole, l’isola di Moskenesøy offre anche uno degli scenari più incredibili dell’arcipelago: siamo nel villaggio di Reine dove la natura si è sbizzarrita nel creare uno skyline di rara bellezza.  
+Nella successiva isola, Flakstadøy, incontriamo la cittadina di Flakstad, che oltre ad essere un rinomato centro di musica tradizionale, è ricca di gallerie e musei. Al contrario nell’incantevole atmosfera del coloratissimo villaggio di pescatori di Nusfjord si torna<img decoding="async" loading="lazy" class="size-medium wp-image-5306 alignright" src="https://progressonline.it/wp-content/uploads/2016/10/14-2016-Ago-Norvegia-Finlandia-372-Franco-Bruni-300x200.jpg" alt="14-2016-Ago-Norvegia-Finlandia 372-Franco-Bruni" width="300" height="200" /> a respirare la dimensione più autentica delle Lofoten. A Flakstadøy alcuni sentieri permettono di raggiungere luoghi incantevoli come Nesland, Andopen e Kvalvika.  
+Nell’isola di Vestvågøy, troviamo Uttakleiv che è stata definita, nel 2010, la spiaggia più romantica d’Europa dalla rivista “The Times”. Leknes ne è il capoluogo e vi si trova anche un aeroporto. Peraltro la conformazione del paesaggio di quest’isola la rende particolarmente adatta alle escursioni, alle attività di parapendio e al cicloturismo. Vari e interessanti i villaggi di questa isola, come Stamsund che oltre ad offrire un impianto sciistico è anche sede di una importante attività di teatro contemporaneo. Paradiso dei cicloamatori è la strada den<img decoding="async" loading="lazy" class="size-medium wp-image-5310 alignleft" src="https://progressonline.it/wp-content/uploads/2016/10/20-2016-Ago-Norvegia-Finlandia-432-Franco-Bruni-300x200.jpg" alt="20-2016-Ago-Norvegia-Finlandia 432-Franco-Bruni" width="300" height="200" />ominata Valbergvein che costeggia varie spiaggette che offrono anche strutture ricettive. Se poi si vuole vivere una full immersion nel mondo vichingo, non c’è luogo migliore di Borg dove si trova il Lofotr Viking-Museum. Il ritrovamento in seguito a scavi archeologici effettuati nell’area, di reperti e delle fondamenta di una vasta dimora vichinga (lunga ben 83 metri) ne ha permesso la ricostruzione degli ambienti, riportandoci indietro di 1000 anni. E non poteva mancare un festival dedicato alla cultura vichinga, il Lofotr Vikingfestival che si tiene ogni anno agli inizi di agosto con un mercato, attività ludiche, concerti e altro ancora.  
+La piccola isola di Gimsø, per la sua particolare esposizione, offre una spettacolare vista dell’oceano ma è anche un ottimo punto di osservazione per il sole di mezzanotte. Ad Hov si trova un antico insediamento con testimonianze che risalgono all’età della pietra dove è possibile fare anche delle belle passeggiate a cavallo.  
+L’isola di Austvågøy è anche la più grande dell’arcipelago con importanti centri ricettivi che ritroviamo principalmente a Svolvær, che ha un suo aeroporto, e dove ha sede la “Casa della Cultura delle Lofoten”. Da Svolvær è ben visibile la curiosa vetta della Svolvaergeita, simbolo di Svolvær e un must per tutti gli<img decoding="async" loading="lazy" class="size-medium wp-image-5305 alignright" src="https://progressonline.it/wp-content/uploads/2016/10/11-2016-Ago-Norvegia-Finlandia-337-Franco-Bruni-300x200.jpg" alt="11-2016-Ago-Norvegia-Finlandia 337-Franco-Bruni" width="300" height="200" /> amanti delle scalate. Da Svolvær si prosegue con la visita del villaggio medievale di Kabelvåg con la sua cattedrale lignea, una delle più grandi di tutta la Norvegia. Ma il luogo più scenografico è il villaggio di pescatori è Henningsvær, con le sue caratteristiche rorbu, una sorta di mini arcipelago collegato da vari ponti tanto da essere definito la “Venezia” delle Lofoten. Da non perdere, poi, la visita del villaggio di Laukvik, che oltre ad offrire nelle zone circostanti percorsi ideali per il trekking, è sede del “Polarlightcenter” creato nel 2007 e dedicato al fenomeno dell’aurora boreale.<img decoding="async" loading="lazy" class="size-medium wp-image-5309 alignleft" src="https://progressonline.it/wp-content/uploads/2016/10/17-2016-Ago-Norvegia-Finlandia-395-Franco-Bruni-300x200.jpg" alt="17-2016-Ago-Norvegia-Finlandia 395-Franco-Bruni" width="300" height="200" />  
+Le due piccole isole di Værøy e Røst rappresentano, nel loro piccolo, un concentrato delle bellezze naturalistiche delle Lofoten. In particolare Røst è composta da ben 365 tra isolotti e scogli, di Røstlandet è l’isola più grande. Nell’isolotto di Trenyken vi si trovano addirittura incisioni rupestri antiche di 5000 anni. Værøy e Røst vantano entrambi un’importante presenza di colonie marine dove è possibile ammirare aquile di mare, cormorani, urie, morus e le simpaticissime pulcinelle di mare: uno spettacolo davvero unico per gli amanti dei safari marini.  
+Se è vero che il clima di queste zone non è tra i più clementi, con quei repentini cambi di luce e atmosfera tanto cari agli appassionati di fotografia, è altrettanto vero che gli scenari offerti dalle Lofoten sono tra i più affascinanti della Norvegia e di tutta l’area scandinava. Attrezzandosi con il giusto equipaggiamento si può intraprendere la visita di questi luoghi ameni senza problemi, utilizzando la bicicletta, molto popolare in queste isole, ovvero dedicandosi al trekking, e alle escursioni in barca per un sano e ricreativo birdwatching. Senza dimenticare, per i più temerari, una visita durante il periodo invernale che regalerebbe quell’indimenticabile spettacolo che è l’aurora boreale… Benvenuti nel magico Nord.
+
+Foto e testi di Franco Bruni

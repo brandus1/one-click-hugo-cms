@@ -1,0 +1,42 @@
+---
+title: Bellezza, eleganza e lusso. The Mall Firenze, il paradiso dello shopping
+author: Redazione
+type: post
+date: 2018-10-16T15:31:41+00:00
+url: /?p=9967
+colormag_page_layout:
+  - default_layout
+categories:
+  - VIAGGI
+tags:
+  - Firenze
+  - shopping
+  - the mall
+
+---
+<img decoding="async" loading="lazy" class="alignleft  wp-image-9971" src="https://progressonline.it/wp-content/uploads/2018/10/the-mall-300x225.jpg" alt="" width="416" height="313" />“_**The Mall Firenze**_” inserito tra le ricche e verdi colline della campagna toscana, nasce nel 2001 ed è diventato il primo outlet di lusso che racchiude, in un’unica location, i più famosi marchi internazionali dell’ alta moda. Un’attenzione costante e un lavoro di continuo miglioramento hanno portato nel tempo ad una selezione unica delle più importanti maison della moda come: **Chloé, Fendi, Gucci, Bottega Veneta, Alexander McQueen, Saint Laurent Paris, Brioni** e molti altri.  
+È uno spazio unico nel suo genere dove le boutique delle firme più prestigiose accolgono i clienti con offerte sensazionali, provenienti dalle collezioni delle stagioni precedenti o dalle eccedenze di produzione. Il contesto è rilassante, armonioso, piacevole, accogliente, perfettamente fruibile e pienamente appagante.  
+Nel 2014 è stato aggiunto, all’ultimo piano della boutique Gucci, anche **l’elegante ristorante Gucci Caffè** che offre ai propri ospiti una grande varietà di opzioni enogastronomiche e, sedendo su una terrazza esterna, si può godere la vista della campagna circostante caratterizzata da dolci colline. Un’ambientazione esclusiva che rende “The Mall Firenze” un luogo iconico d’ispirazione per l’architettura italiana contemporanea.  
+**The Mall è un’esperienza all’insegna delle eccellenze del suo territorio**: cultura, arte, natura, gastronomia e naturalmente shopping. Una pausa di piacere in un luogo di grandi firme, una gradevole passeggiata in ampi viali circolari, protetta da un sistema di sorveglianza e da vigilanti discreti.  
+Ci si allontana, quindi, dalla grande città e dal suo traffico infernale per **trascorrere una giornata in un piccolo paradiso artificiale**. L’attenzione ai dettagli e l’impegno costante nel servizio sono la garanzia di un’esperienza unica che combina l’eleganza con la bellezza della natura e la sostenibilità.  
+Servizi giornalieri, incluse le domeniche e i giorni festivi, collegano il centro di Firenze a The Mall e viceversa. Gli autobus diretti partono dall’ autostazione BUSITALIA situata vicino alla stazione ferroviaria centrale di Firenze. Un più esclusivo servizio navetta può prelevare i visitatori dagli alberghi al centro della città. Gli spazi dell’ outlet sono inoltre stati accuratamente progettati senza barriere architettoniche per permettere un’esperienza accessibile a tutti.  
+<!--nextpage-->
+
+  
+“**_The Mall Firenze_**” accoglie quotidianamente visitatori da tutto il mondo dando loro l’opportunità di vivere un’esperienza nel panorama della bellezza e del luxury a 360 gradi,<img decoding="async" loading="lazy" class=" wp-image-9973 alignright" src="https://progressonline.it/wp-content/uploads/2018/10/the-mall-firenze-300x225.jpg" alt="" width="403" height="302" /> potendo contare su prezzi vantaggiosi senza rinunciare alla massima qualità.I principali mercati internazionali di riferimento sono infatti la Cina, Corea del Sud, Taiwan, Hong Kong, Giappone, Singapore, Malesia, Russia, Kazakistan, Ucraina, Stati Uniti, Canada, Brasile , Emirati Arabi Uniti, Kuwait, Australia e India.  
+“The Mall Luxury Outlets” offre inoltre “My Luxury Wallet”, un pacchetto esclusivo che include una serie di vantaggi e sconti aggiuntivi come ad esempio un drink di benvenuto al Caffè Gucci, una card skip – the – line per la lounge del tax – free e una priority access card per l’accesso prioritario presso boutique selezionate. Inoltre l’esclusiva VIP Lounge offre un servizio di conciergerie e hands – free shopping al fine di prendersi maggiormente cura delle richieste dei suoi visitatori. Verrà inoltre lanciato un innovativo servizio di shopping delivery che permetterà la consegna degli acquisti direttamente presso gli hotel dei clienti oppure presso la destinazione desiderata.  
+“_**The Mall Firenze**_” lavora costantemente per incrementare e accrescere le sue già numerose collaborazioni con hotel, compagnie aeree, tour operator e piattaforme di pagamento che offrono i migliori vantaggi per una clientela internazionale.  
+Giorgio Motta, General Manager di “The Mall Luxury Outlets”, afferma che: “_Bellezza è ciò che ogni giorno ci ispira, è la base della nostra filosofia di vita e ciò a cui quotidianamente aspiriamo._  
+_The Mall è sinonimo di bellezza perché ci s’innamora di questo posto e si ha il desiderio di ritornarci_”. Presso il “**_The Mall Firenze_**” si sviluppa la passione per il lusso che è caratterizzata anche dal desiderio di auto ammirarsi, di godere di se stessi e della propria immagine. Il lusso è la voglia di differenziarsi e di migliorare la propria consapevolezza.  
+Stimolati da colori, musica, materiali, i desideri dei visitatori dell’ outlet prendono vita attraverso lo shopping in un ambiente di classe ed eleganza come il The Mall. È come un viaggio che permette di allontanarsi dalla quotidianità e di entrare in una dimensione più libera, più svagata, più leggera, più divertente. L’acquisto di beni di alta moda conferma loro e rivela agli altri chi sono attraverso gli oggetti che comprano, non solo per la loro funzionalità ma anche per le stimolazioni sensoriali ed emotive che permettono di migliorare la percezione del proprio benessere personale.  
+<!--nextpage-->
+
+  
+<img decoding="async" loading="lazy" class="alignleft  wp-image-9972" src="https://progressonline.it/wp-content/uploads/2018/10/mall-300x225.jpg" alt="" width="367" height="275" /> Non a caso, la moda italiana rappresenta un fattore di attrazione e una spinta agli acquisti che trova il suo successo nella qualità dei prodotti e nell&#8217;ampiezza dell&#8217;offerta, capace di soddisfare la clientela italiana e internazionale.  
+Altra novità: nel 2019, “The Mall Luxury Outlets” aprirà il tanto atteso **“The Mall Sanremo”**, posizionato tra la famosa riviera italiana e quella francese, un mix inconfondibile di arte, musica e fascino della Riviera dove si offrirà agli ospiti l’opportunità di acquistare abbigliamento e accessori che portano la firma dei migliori marchi della moda di lusso a prezzi vantaggiosi.  
+“The Mall Sanremo” conserverà la stessa atmosfera di “The Mall Firenze”: un’esperienza su misura che **offre ai visitatori il comfort di trovare le migliori maison a pochi passi l’una dell’altra.**  
+Una giornata trascorsa al The Mall aiuta a sollecitare il senso estetico e creativo, a rilassarsi dopo impegni pesanti, ad affrontare i cambiamenti, a vivere il successo, i nuovi ruoli o le nuove relazioni con maggior serenità.
+
+<p style="text-align: right;">
+  Francesca Sirignani
+</p>

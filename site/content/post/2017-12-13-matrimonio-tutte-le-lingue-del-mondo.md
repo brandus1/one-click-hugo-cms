@@ -1,0 +1,52 @@
+---
+title: “Matrimonio” in tutte le lingue del mondo
+author: Redazione
+type: post
+date: 2017-12-13T14:05:50+00:00
+url: /?p=7505
+colormag_page_layout:
+  - default_layout
+categories:
+  - VIAGGI
+tags:
+  - ec target
+  - italian wedding
+  - veronica amati
+  - veronica tasciotti
+  - wedding
+  - wedding in italy
+  - wedding planner
+  - wedding travel coordinator
+
+---
+**<img decoding="async" loading="lazy" class=" wp-image-7512 alignleft" src="https://progressonline.it/wp-content/uploads/2017/12/Cattura-300x187.png" alt="" width="368" height="242" />La promessa nuziale scambiata all’ombra del Colosseo, sulle rive di un lago o con vista sul Golfo di Napoli. Perché se il matrimonio è una foto c’è bisogno soprattutto della cornice più adatta. E sempre più stranieri scelgono il Bel paese per celebrare il grande passo…**
+
+Un po’ mediatrice culturale un po’ organizzatrice di eventi, un po’ operatrice turistica ed un po’ interprete: la figura del Wedding Travel Coordinator è di ampio raggio, e spazia entro confini che si rivelano essere piuttosto larghi ma ben precisi e delineati. Questa professione nasce da una nuova domanda del mercato e si sviluppa in un’assistenza dedicata agli sposi stranieri che non solo vengono a sposarsi in Italia, ma che prima di tutto sono dei turisti. Sono in crescita infatti le coppie che da altri paesi decidono di scambiarsi le promesse nel nostro Paese e di passare qui il loro “_soggiorno di nozze_”. Data questa crescente domanda la figura del Wedding Travel Coordinator si ritrova a coprire una posizione sempre più importante ai fini della perfetta riuscita dell’evento.
+
+Veronica Tasciotti, sangue viterbese, romana d’adozione ed esperta di lingua e cultura cinese, ricopre il ruolo di Destination Wedding Planner, figura che organizza matrimoni stranieri in Italia. Rispondendo alle richieste del mercato, ha ideato corsi di formazione per diventare Wedding Travel Coordinator. Veronica dall’alto delle sue esperienze dirette in Cina è riuscita a rivolgersi ad una fetta di mercato potenzialmente enorme che guarda al nostro Paese con sempre maggior interesse e considerazione. E l’Italia ha solo che da guadagnarne in termini di autopromozione del territorio e visibilità internazionale.
+
+**<img decoding="async" loading="lazy" class="alignnone  wp-image-7506 alignright" src="https://progressonline.it/wp-content/uploads/2017/12/WTCSC046-300x200.jpg" alt="" width="357" height="241" />Quella del Wedding Travel Coordinator è una figura relativamente nuova nel mercato del lavoro. In cosa consiste questa professione?  
+** _La professione nasce dalla necessità degli stranieri di sposarsi in un Paese come il nostro che, per paesaggi e location, si presta bene per questo genere di servizi. Assieme ad una persona esperta di turismo abbiamo formato questa figura che non esisteva: il Wedding Travel Coordinator, a metà tra accompagnatore turistico e il coordinatore di matrimoni. Deve dunque avere nozioni di turismo e dell’evento matrimoniale. Gli stranieri quando vengono a sposarsi non vengono rimangono anche per una settimana, bisogna dunque organizzare escursioni, gite, personal shopping, ristoranti&#8230; Il giorno del matrimonio potrebbe consistere “semplicemente” in uno shooting fotografico, oppure in un rito simbolico, l’importante è far sembrare che la cerimonia si sia svolta in Italia. Abbiamo denominato così questa figura e ne abbiamo definito gli standard organizzando dei corsi di formazione per diventare WTC di cui sono già state fatte due edizioni “China Specialist” (rivolte solo a sinologi) e di cui sono in programma altre edizioni anche in inglese e tedesco con focus sul matrimonio russo, indiano ed anglosassone._
+
+**Come si diventa un professionista del wedding? Quali sono le doti che deve avere chi vuole lavorare in questo ambito?**  
+_Bisogna fare una distinzione tra il wedding planner ed il wedding coordinator. Quest’ultimo esegue le indicazioni che vengono date dal planner, che programma e disegna il matrimonio. Nel caso in cui ci sia una wedding planner che viene contattata per fare un matrimonio straniero, il coordinator è la figura che fa da tramite tra le due parti, media tra le due culture, è un ponte tra chi è un organizzatore di matrimoni in Italia e che offre servizi italiani ma comunque orientati al mercato straniero. Il primo ruolo del wedding travel coordinator è quello di mediatore culturale, è importante capire gli aspetti e le sfumature delle culture di ciascun paese. Creatività e problem solving sono fondamentali._ 
+
+<!--nextpage-->
+
+**<img decoding="async" loading="lazy" class="alignnone  wp-image-7514 alignleft" src="https://progressonline.it/wp-content/uploads/2017/12/AD5_8612-300x200.jpg" alt="" width="381" height="262" />Perché sempre più stranieri decidono di sposarsi in Italia?  
+** _L’italia è un paese meraviglioso con un clima buono e dove si mangia bene, e rappresenta il lusso attraverso i marchi di alta moda. Il motivo per cui molti decidono di sposarsi qua è quello di differenziarsi. Chi fa questa scelta sono persone con una buona disponibilità economica e, parlando dei cinesi, soprattutto i millenials: ragazzi molto giovani e benestanti che vogliono rompere con le tradizioni del passato. L’Italia è il paese del cibo, oggi vanno molto di moda i matrimoni eno gastronomici, molti li organizziamo anche all’interno dei vigneti. Il nostro Paese ha molto da offrire ma purtroppo a volte non sa proporsi nel modo giusto._ 
+
+**Secondo lei, qual è la formula per un matrimonio perfetto?  
+** _I matrimoni, sia italiani che stranieri, sono ormai eventi che si programmano molto tempo prima e quindi c’è tutto il tempo di organizzare bene e di scegliere i giusti fornitori: il catering così come il fiorista o la location possono fare la differenza. Avere già un database ricco di fornitori validi è fondamentale ma quello che può fare veramente la differenza è la capacità di problem solving. Un matrimonio può essere organizzato nei minimi dettagli ma l’imprevisto c’è quasi sempre e bisogna saperlo risolvere. Nei nostri corsi abbiamo anche introdotto una parte dedicata alla psicologia dove abbiamo dato suggerimenti sulla gestione delle emozioni in cui insegniamo a mediare tra la parte emozionale e quella pratica risolvendo il problema._
+
+**L’aspetto più gratificante nel fare questa professione?<img decoding="async" loading="lazy" class="alignnone  wp-image-7513 alignright" src="https://progressonline.it/wp-content/uploads/2017/12/750_0471-200x300.jpg" alt="" width="237" height="330" />  
+** _E’ innanzitutto la riuscita dell’evento, vedere gli sposi felici. Il matrimonio a differenza di un normale viaggio turistico ha una differenza che è la parte emozionale e questa è importante per tutti. Bisogna capire come cambiano le emozioni: sono diversi per esempio i fattori che possono emozionare un cinese da un italiano. Io nell’organizzazione aggiungo sempre la parte emozionale e l’aspetto più gratificante è quando gli sposi sono soddisfatti._ 
+
+**Vi espanderete presto in nuovi mercati?  
+** _Per il momento siamo ben focalizzati sulla Cina perché siamo i primi in questo campo (ad oggi sono l’unica Wedding Planner italiana sinologa) e cavalchiamo la tendenza. Con i progetti di wedding travel coordinator ci stiamo ampliando verso il mercato anglosassone, indiano e russo. Stiamo collaborando con figure analoghe alla mia ma specializzate nei mercati di riferimento per poterci ampliare e dare un’offerta maggiore._
+
+Per ulteriori info visitate il [sito ufficiale ][1].
+
+&nbsp;
+
+ [1]: https://www.veronicaamati.com/it/

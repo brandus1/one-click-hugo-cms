@@ -1,0 +1,74 @@
+---
+title: A ognuno la sua India
+author: Redazione
+type: post
+date: 2017-10-02T09:18:20+00:00
+url: /?p=6484
+colormag_page_layout:
+  - default_layout
+categories:
+  - VIAGGI
+tags:
+  - Holi festival
+  - India
+  - Jodhpur
+  - Tempio di Meenakshi
+  - Viaggi
+  - yoga
+
+---
+Esistono luoghi che, oltre ad essere veri e propri paradisi tropicali, mantengono forti tradizioni culturali dedicate proprio alla scoperta dell&#8217;individuo e del sè.  
+Lo Stato del Rajasthan, ad esempio, culla di storie di Maharaja, regni principeschi e custode dei misteri del deserto di Thar. Qui si preserva un&#8217;antica tradizione di menestrelli e cantori che ancora oggi girano di villaggio in villaggio riportando alla memoria degli abitanti gli antichi splendori.  
+Una terra vibrante ed esotica nella quale tradizione e gloria reale si esprimono in un trionfo di colore che rompe la continuità dell&#8217;immenso sfondo di sabbia del deserto.  
+La bellezza è tutta nelle tante differenti realtà che la compongono, ma che convivono in una globale armonia. Gente, tradizioni, costumi, musica, cucina tutto qui è intrigante, perfino i monumenti, forti inespugnabili, maestose &#8220;havelis” (magioni), trasudano cultura e tradizione ed esaltano risorse naturali di assoluta bellezza.  
+C&#8217; è un&#8217;aura romantica che pervade il Rajasthan e si percepisce in ogni angolo dello Stato, il che la rende una delle mete più esotiche per i turisti provenienti da tutto il mondo, perchè ha preservato la propria etnicità e uno stile di vita tradizionale che si tramanda nel tempo.
+
+<img decoding="async" loading="lazy" class=" wp-image-6485 alignleft" src="https://progressonline.it/wp-content/uploads/2017/10/JODHPUR-FRUIT-VENDOR-JODHPUR-INDIA-1996-by-STEVE-MCCURRY-Born-1950-C32387-300x201.jpg" alt="" width="449" height="301" /> Ne è un esempio Jodhpur, seconda città del Rajasthan e già capitale della regione storica del Marwar, meta turistica irrinunciabile, sia per l&#8217;abbondanza di templi e palazzi di interesse storico e artistico, che per l&#8217;imponente e maestoso forte di Mehrangarh, capolavoro dell&#8217;architettura rajput in pietra calcarea color ocra. Questo edificio fu utilizzato come residenza dai maharaja fino all&#8217;inizio del XX sec. e da sei secoli domina la città da un massiccio di 130 metri.  
+Soprannominata anche “Sun city” per la costante presenza del sole e di tempo sereno (che vista la vicinanza all&#8217;area del Deserto di Thar era facile immaginare), ma anche “Blue city” per il gran numero di abitazioni dipinte con tinta blu, Jodphur ha fatto innamorare visitatori da tutto il mondo, tra cui anche Steve McCurry, che ha dedicato alcuni evocativi scatti alle strade di questa località unica e alla magia che le attraversa.
+
+Tra i miti di una civiltà che risale a quasi 5000 anni fa, ma che ha saputo preservare tradizioni antiche e radicate e pratiche sempre più apprezzate e diffuse per rivitalizzare il fisico e l&#8217;anima, si erge la bellissima regione del Kerala, in cui, secondo antichi testi, i trattamenti Ayurvedici avrebbero la massima efficacia, soprattutto durante i monsoni che arrivano qui ogni giugno.  
+In queste terre l&#8217;Ayurveda è praticata con assoluta autenticità e dedizione, come metodo naturale per ottenere salute e longevità con trattamenti terapeutici ringiovanenti e specifici per alcuni disturbi, come ottimo antidoto alla stanchezza fisica, mentale e spirituale, conseguenza dello stress della società moderna e del suo stile di vita.  
+C&#8217;è, poi, la celebre località spirituale di Rishikesh, detta il “luogo dei saggi”, meta perfetta per chi vuole praticare lo yoga, immergendosi nella meditazione, non a caso conosciuta anche come la “capitale mondiale dello Yoga”.  
+Rishikesh è il luogo ideale per tutti coloro che siano alla ricerca della pace della mente e di una naturale connessione con la propria sfera spirituale. Circondata dalle cime innevate dell&#8217;Himalaya, è la tappa iniziale del pellegrinaggio indù di Yatra Char Dham, considerato come il più sacro di tutti ed ospita il Ghat Triveni, il punto di confluenza di più fiumi sacri: il Gange, lo Yamuna e il Sarawati. Qui vi accorgerete come, oltre a essere un complesso sistema filosofico, lo yoga è, soprattutto, una scienza che conta tra i 3.000 e i 6.000 anni di vita, le cui nozioni sono fondate su esperienze, esperimenti e tecniche tramandate da mistici, santi, e dai saggi scritti sulla disciplina.  
+La leggenda racconta che una dea guerriera, Bhadrakali, generata dal terzo occhio del dio Shiva, dopo aver sconfitto il temibile demone Darikan, ricevette dal dio onnipotente il compito di scegliere un luogo sulla terra dove stabilirsi e vegliare sul genere umano. Bhadrakali, scelse senza esitazioni il Kerala, nella parte meridionale dell&#8217;India.  
+Ed è ancora un&#8217;altra leggenda a raccontarci le origini della pratica dello yoga.  
+Il primo ad acquisire i segreti dello yoga fu un pesce, che, trovandosi a nuotare vicino a una caverna, nell’Oceano Indiano, rimase incantato dalla voce del dio Shiva, l’inventore dello yoga, che illustrava alla sua sposa Parvati le posizioni da lui create e destinate ad essere praticate dagli dei. Parvati si era innamorata di lui proprio osservandolo mentre meditava e praticava lo yoga ed era desiderosa di apprendere tutti i segreti della disciplina. Ascoltando questi insegnamenti il pesce si tramutò in un uomo e, da quel momento, divenuto Matsyendra (che in sanscrito significa “pesce fatto uomo” o “signore dei pesci”) tramandò agli uomini le tecniche ascoltate dal dio Shiva, divenendo il primo maestro di yoga (yogin): la narrazione evidenzia le trasformazioni fondamentali che l’uomo può produrre su di sé beneficiando della pratica yoga, grazie alla quale può esaltare a pieno le proprie qualità umane (trasformandosi in un vero uomo). Infatti il termine yoga deriva dal sanscrito “yuj”, che sta a significare “congiungere”, “unire”; secondo la filosofia tradizionale, grazie allo yoga, l’anima individuale (o jîvâtman) si ricongiunge con l’anima universale e divina (o paramâtman), l’uomo è perciò destinato a sentirsi parte di una più vasta e completa entità.  
+Non va dimenticato che, prima di essere un complesso sistema filosofico &#8211; che ha tra i 3.000 e i 6.000 anni di vita &#8211; lo yoga è, soprattutto, una scienza, le cui nozioni sono fondate su esperienze, esperimenti e tecniche tramandate da mistici, santi, e dai saggi scritti sull&#8217;argomento.  
+Non a caso, in India, vengono organizzate lezioni di yoga gratuite per i dipendenti pubblici, quasi tutti gli spazi verdi sono giornalmente invasi da chi pratica la disciplina, considerata, dai più, il modo migliore per iniziare la giornata.
+
+&nbsp;
+
+**<img decoding="async" loading="lazy" class=" wp-image-6486 alignright" src="https://progressonline.it/wp-content/uploads/2017/10/16455140-rilievi-colorate-di-divinit-ind-nel-tempio-di-Meenakshi-Archivio-Fotografico-300x200.jpg" alt="" width="448" height="298" />Perdersi nel tempo**
+
+Ogni visita nell’India del Sud equivale a un viaggio indietro nel tempo: templi, palazzi, meraviglie naturali. In questa sorprendente abbondanza di attrazioni, spunta il Tempio di Meenakshi a Madurai, una delle più antiche città del Tamil Nadu, conosciuta anche come &#8220;la città del nettare&#8221;.  
+Il Tempio di Meenakshi ne è il simbolo più famoso, dedicato, appunto, a Meenakshi, la consorte di Shiva, e proprio qui, secondo i racconti mitologici, si sarebbero celebrate le loro nozze.  
+Una straordinaria opera architettonica composta da molteplici edifici, la maggior parte dei quali costruiti tra il XII e il XVIII secolo: due santuari, 12 gopuram (ovvero le torri monumentali che decorano l&#8217;ingresso di un tempio) e centinaia di mandapams, corridoi con colonne riccamente decorati con sculture e dipinti.  
+La grande abilità architettonica dell&#8217;antica India rivive ogni giorno tra queste mura e negli occhi di chiunque vi acceda, varcando la soglia dell&#8217;Ashta Shakthi Mandapam &#8211; il corridoio del santuario della dea Meenakshi – in cui ci si perde ad ammirare il soffitto emisferico decorato da numerosi bassorilievi colorati, oppure immergendosi nel Potramaraukulam, o Golden Lotus Tank, l&#8217;antica piscina in cui il bagno diventa sacro, o ancora lasciandosi travolgere dai colori delle pareti dei corridoi e delle colonne, ricoperte di quadri e pitture di numerose divinità.  
+Ma, più di ogni altra cosa, è la sala delle 1000 Mandapam a lasciare un ricordo indelebile nel cuore del visitatore. È la parte più famosa del Tempio, in cui si contano mille colonne scolpite, ciascuna delle quali è un bell&#8217;esempio dell&#8217;arte dravidica.  
+Visitare questa meraviglia architettonica è davvero molto semplice, poichè Madurai è uno dei principali nodi ferroviari del Sud dell’India, l&#8217;aeroporto si trova a circa 10 km dal centro della città ed è collegato con voli giornalieri da Bangalore, Chennai, e molte altre città indiane, o si può tranquillamente scegliere l&#8217;efficiente rete stradale.
+
+&nbsp;
+
+**<img decoding="async" loading="lazy" class="wp-image-6488 alignleft" src="https://progressonline.it/wp-content/uploads/2017/10/552afdde6a418df2d4d986a2812fe736-300x199.jpg" alt="" width="410" height="272" />Ritrovarsi nei colori**
+
+L’Holi Festival, nonostante la notorietà raggiunta in ogni angolo del globo, è tra le più antiche celebrazioni indù della stagione primaverile.  
+Migliaia di persone vengono ogni anno travolte dal vortice di allegria di quella che è conosciuta come la festa dei colori, della gioia, dell’amore e del divertimento: una ricorrenza attesa soprattutto dai più piccoli, a cui è consentito lanciare bombe d’acqua in giro per le strade.  
+Canti e balli animano i festeggiamenti, insieme al lancio di vernice e di polvere colorata – acquistata nei mercati o ottenuta in casa direttamente dai fiori- per le vie delle città e dei villaggi.  
+Una celebrazione densa di significati e richiami a una tradizione secolare. L’accensione di un falò, ad esempio, simboleggia la vittoria del bene sul male e la celebrazione della fuga miracolosa del giovane Prahalad, devoto di Vishnu, dalla demone Holika che intendeva darlo alle fiamme. Il giovane, grazie alla sua fede incrollabile, scampò illeso, mentre Holika morì nel fuoco.  
+Un&#8217;altro episodio tratto dalla mitologia induista dà origine alla festa: il dio Krishna, geloso della bellezza e del candore della pelle dell’amata Radha, un giorno le dipinse la faccia con dei colori. Ecco perché l’Holi è anche la festa degli innamorati, che si colorano il viso a vicenda in segno d’amore.  
+La polvere di colore è ovunque, l&#8217;acqua abbonda come gocce di pioggia in una tempesta di colori: non resta che armarsi fino ai denti di bombe d&#8217;acqua colorata e sacchetti di colore e gettarsi nella mischia.
+
+&nbsp;
+
+**Pillole di viaggio**
+
+Mr. C. Gangadhar, Direttore dell&#8217;Ufficio del Turismo Indiano in Italia  
+“L&#8217;Italia, tra i paesi europei, è uno dei più importanti per la promozione delle rotte turistiche nel nostro paese, e i dati che stiamo ricevendo sono estremamente positivi in merito al numero di arrivi dall&#8217;Italia. Per questo abbiamo in programma la partecipazione a fiere, mostre, roadshow e seminari d&#8217;approfondimento, con sempre maggiore attenzione sulle proposte per le famiglie, per i viaggi di lavoro e i viaggi stampa in India, per far conoscere quanto più possibile le nostre svariate destinazioni, che sono ideali 365 giorni l&#8217;anno.  
+L&#8217;espressione “un viaggio da fare almeno una volta nella vita” non è sufficiente. Tutt&#8217;altro, ne sarebbero necessari almeno due o tre, perchè non parliamo di un paese, ma di un vero e proprio continente. L&#8217;India con il suo popolo, con la sua cucina e la sua cultura è in grado di offrire tutto, ecco perchè è incredibile.  
+Un ventaglio inifinito di proposte in grado di regalare un pezzo di India a ogni viaggiatore, per portarlo per sempre nel cuore”.
+
+&nbsp;
+
+[www.indiatourismmilan.com][1]
+
+ [1]: https://www.indiatourismmilan.com/home.0.html?&no_cache=1

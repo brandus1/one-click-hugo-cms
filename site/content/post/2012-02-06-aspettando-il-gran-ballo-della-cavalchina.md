@@ -1,0 +1,28 @@
+---
+title: Aspettando il Gran Ballo della Cavalchina
+author: Redazione
+type: post
+date: 2012-02-05T23:00:00+00:00
+url: /?p=2838
+post_views_count:
+  - 8
+  - 8
+categories:
+  - CULTURA E SPETTACOLO
+
+---
+**Ci siamo. Il carnevale di Venezia 2012 ha gi&agrave; aperto le sue porte** e si presenta con un programma ricco di eventi e manifestazioni. Ogni angolo della citt&agrave; di Venezia, gi&agrave; dal 4 febbraio &#8211; fino al 21 &#8211; &egrave; addobbato a festa. Maschere, travestimenti, giocolieri e spettacoli animeranno e coloreranno ponti, calli e campielli.
+
+**Il tema centrale del Carnevale di Venezia 2012 sar&agrave; il gran Teatro.** Il titolo scelto per la kermesse carnevalesca veneziana sar&agrave; La Vita &egrave; Teatro Tutti in Maschera. Un Carnevale, quello di Venezia, che tutti amano. Splendide le atmosfere e gli eventi organizzati per l&#8217;occasione. Come ogni anno, a riempire i Sestieri di Venezia e Piazza San Marco saranno turisti provenienti da ogni parte del mondo. Hotel, alberghi, di Venezia e Mestre si preparano ad accogliere in ambienti a tema, famiglie, coppie e gruppi che scelgono il periodo del Carnevale per trascorrere le loro Vacanze a Venezia. Si preannuncia il tutto esaurito nelle strutture ricettive di Venezia. Teatri, palazzi, campielli e il gran teatro di Piazza San Marco organizzano concerti musicali, recital e rappresentazioni, opere e incontri per tutto il periodo di Carnevale. E se il tema centrale &egrave; il Teatro, non poteva mancare all&#8217;appuntamento anche La Fenice. Lo storico teatro veneziano, anche quest&#8217;anno presenta un programma ricco e variegato, per tutta la durata del Carnevale.  
+Infatti, durante il periodo di Carnevale 2012 la Fondazione Teatro La Fenice, come da tradizione, terr&agrave; aperti il pi&ugrave; possibile i propri teatri &ndash; la Fenice, appunto, e il Malibran &ndash; per offrire il maggior  
+numero di spettacoli al pubblico veneziano e ai turisti che accorrono da tutto il mondo a Venezia per partecipare alla festa.  
+Ben due saranno infatti gli appuntamenti lirici, entrambi in tema con il soggetto del Carnevale di Venezia 2012, &ldquo;La vita &egrave; teatro. Tutti in maschera&rdquo;. 
+
+**Al Teatro La Fenice andranno in scena il gioved&igrave;, la domenica e il marted&igrave; grasso** (16, 19 e 21 febbraio) i comici travestimenti in nobili albanesi dei due ufficiali napoletani Guglielmo e Ferrando di Cos&igrave; fan tutte di Wolfgang Amadeus Mozart, presentata in un nuovo allestimento firmato dal regista Damiano Michieletto con la direzione musicale di Antonello Manacorda (altre cinque repliche seguiranno il 24, 26 e 28 febbraio e l&rsquo;1 e 3 marzo).  
+Il Teatro Malibran ospiter&agrave; invece le avventure a lieto fine della duchessa Isabella che, creduta morta, ricompare nei panni di Nisa, nipote del minatore Tarabotto, nell&rsquo;Inganno felice di Gioachino Rossini. Prima delle opere allestite nell&rsquo;ambito del progetto &laquo;Atelier della Fenice al Teatro Malibran&raquo;, la farsa rossiniana, diretta da Stefano Montanari per la regia di Bepi Morassi, andr&agrave; in scena venerd&igrave; 10, domenica 12, mercoled&igrave; 15, venerd&igrave; 17 e marted&igrave; grasso 21 febbraio (con altre quattro repliche il 25 e 29 febbraio e il 2 e 4 marzo).  
+Musica sull&rsquo;acqua e Quattro stagioni sar&agrave; il titolo del concerto sinfonico proposto al Teatro Malibran il sabato e la domenica grassa (18 e 19 febbraio), con lo stesso Stefano Montanari impegnato nella doppia veste di direttore e violino solista in un programma barocco comprendente la Water Music di Georg Friedrich H&auml;ndel, un Concerto grosso di Pietro Antonio Locatelli, la Suite per orchestra n. 2 di Johann Sebastian Bach e i quattro concerti per violino, archi e continuo Le quattro stagioni di Antonio Vivaldi.
+
+**Avvenimento culminante del Carnevale sar&agrave; come di consueto il gran ballo in maschera della Cavalchina,** tradizione veneziana del XVIII e XIX secolo ripresa con grande successo dal 2007 e giunta dunque alla sua sesta edizione. La Cavalchina &egrave; uno degli eventi mondani pi&ugrave; spettacolare ed esclusivo del Carnevale di Venezia; si tratta di un gran ballo in maschera, che si svolge al Teatro La Fenice, una festa privata elegante e spettacolare cui parteciper&agrave; un pubblico internazionale composto fra gli altri dai donatori di importanti associazioni che operano per la salvaguardia di Venezia o per il sostegno dei grandi teatri d&rsquo;opera.&nbsp; La platea del Teatro diventer&agrave; per una notte un&rsquo;elegante e raffinata sala da ballo, con artisti d&rsquo;eccezione che si alterneranno sul palcoscenico per dar vita ad uno spettacolo unico nel suo genere. La serata normalmente si compone di musiche classiche e tradizionali rigorosamente suonate dal vivo e spettacoli allestiti sul palcoscenico da artisti d&rsquo;eccezione che si alterneranno per dar vita ad uno spettacolo unico nel suo genere. Per tutta la serata sar&agrave; a disposizione buffet e open bar mentre, nel Foyer e nelle Sale Apollinee ci sar&agrave; la cena di gala a buffet e, dalla mezzanotte poi, i ritmi animati trasformeranno la sala del Teatro in una grande discoteca.  
+Il Teatro La Fenice si trasforma dunque in una sala da ballo sfarzosa e senza eguali, per una notte di incredibili sorprese. Molto pi&ugrave; che un ballo, un teatro continuo, dove il palcoscenico sembra non finire mai e dove ogni spettatore diventa protagonista. Giocolieri, acrobati, nuove realizzazioni possibili per celebrare in modo degno la festa del Carnevale, in un crescendo di &lsquo;follia&rsquo; condivisa. 
+
+&nbsp;

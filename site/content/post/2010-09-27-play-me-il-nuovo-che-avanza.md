@@ -1,0 +1,24 @@
+---
+title: Play.me, il nuovo che avanza
+author: Redazione
+type: post
+date: 2010-09-26T22:00:00+00:00
+url: /?p=2718
+post_views_count:
+  - 18
+  - 18
+categories:
+  - CULTURA E SPETTACOLO
+
+---
+Un nuovo modo. Un nuovo mondo. Un nuovo canale. Unico. La cloud music approda anche sulla TV digitale. Play.Me ha come missione quella di essere il punto di riferimento globale per la musica digitale e ha debuttato il 25 settembre con l&rsquo;evento &ldquo;WOODSTOCK 5 STELLE&rdquo;, che ha sancito il ritorno di BEPPE GRILLO in tv, in diretta e in esclusiva.  
+Play.Me &egrave; una TV musicale multipiattaforma (DTT, Web, HBBTV, Mobile), un&rsquo;esperienza musicale completa (audio, video, informazioni e community); un nuovo modo di usufruire della musica ovunque e in ogni momento, grazie alle applicazioni mobili e ibride; una &ldquo;social TV&rdquo; con palinsesto generato direttamente dagli utenti; un media che ha una audience incrementata dal meccanismo virale e interattivo del social game; un luogo dove si pu&ograve; ascoltare musica on&#45;demand senza sosta; un&rsquo;offerta esclusiva di brani DRM&#45;free in download e streaming in alta qualit&agrave; al prezzo pi&ugrave; basso del mercato.  
+Play.Me offre la possibilit&agrave; di vivere in maniera globale i suoi contenuti grazie alla sua totale interattivit&agrave;. In ogni momento della giornata, infatti, andr&agrave; in onda il programma giusto per i membri della sua community: non pi&ugrave; semplici utenti, ma direttori di palinsesto. Questo avviene attraverso un servizio apposito di messaggistica o attraverso iphone, sms, facebook, musicbox.it e STB Fastweb (uno specifico dispositivo, Set Top Box appunto, che Fastweb fornisce). Vengono votati i videoclip e cinque secondi prima della fine di ciascuno di essi, il software conteggia tutte le richieste ricevute e manda in onda quello con il maggior numero di voti. L&rsquo;accessibilit&agrave; &egrave; una scelta precisa: tutte le tecnologie di comunicazione possono, infatti, comunicare con il canale. Il sistema multimediale della musica di Play.Me &egrave; fatto da: DTT, Web, Facebook application, HBBTV, IPTV, Mobile TV UMTS, iPad, iPhone, Android, Nokia, Applicazioni Over&#45;The&#45;Top.  
+Tanta musica, con i videoclip pi&ugrave; esclusivi del panorama italiano ed internazionale, approfondimenti, &ldquo;mondi, modi & mode per capire e conoscere&rdquo;, grandi concerti e spettacolari eventi live dei pi&ugrave; grandi artisti del mondo, collegamenti live con le pi&ugrave; grandi discoteche del mondo, ma anche informazione, con le notizie pi&ugrave; importanti direttamente dalla redazione della free press CITY.  
+&ldquo;L&rsquo;apertura di Play.me sul digitale terreste &egrave; un altro tassello nella nostra strategia di posizionarci come un punto di riferimento globale per la musica digitale: in questo senso la televisione &egrave; un altro strumento di accesso alla musica in chiave multicanale &#45; afferma Paolo Barberis, Presidente e fondatore di Dada &ndash; dal web alle applicazioni sviluppate per Facebook o per iTunes&rdquo;.  
+L&rsquo;esperienza musicale di Play.Me &egrave; "in the cloud", cio&egrave; l&#8217;utente ha sempre a disposizione tutta la propria musica in modo "distribuito", via web e in mobilit&agrave;, senza necessit&agrave; di installare software sul proprio pc. La qualit&agrave; dell&#8217;ascolto in streaming del catalogo musicale &egrave; di 320kbps, la stessa qualit&agrave; dei CD, per un catalogo di quasi 4 milioni di brani e 120.000 artisti grazie alla partnership con le maggiori realt&agrave; del mercato discografico: Sony Music, Emi, Kiver, The Orchard, Universal, Warner.  
+In linea con la logica di accesso distribuito, ciascun utente potr&agrave; accedere via mobile all&#8217;intero catalogo in streaming e alle stesse playlist create via web. Attraverso un meccanismo di sincronizzazione, gli utenti ritroveranno le modifiche fatte sul proprio smartphone (Android e iPhone) all&#8217;interno del servizio web usufruendo cos&igrave; di un&#8217;esperienza musicale che prescinde dal canale di accesso (pc o mobile). Play.Me &egrave; il primo canale in Italia ad offrire il servizio di off&#45;line caching ossia la possibilit&agrave; di ascoltare la propria musica anche in assenza di connessione mobile grazie alla tecnologia della memorizzazione in locale, rendendo questa soluzione ideale per chi ascolta musica in mobilit&agrave;.  
+&ldquo;Play.me non &egrave; una nuova tv ma &egrave; la nuova tv &ndash; afferma l&rsquo;editore Alessandro Giglio &ndash; ideata e creata per essere fruibile ed interagibile con tutte le piattaforme digitali, la prima e unica tv in Italia di terza generazione. Un nuovo modo. Un nuovo mondo. Un nuovo canale. Unico. Play.me&rdquo;.
+
+**  
+Paolo Vaccaro**

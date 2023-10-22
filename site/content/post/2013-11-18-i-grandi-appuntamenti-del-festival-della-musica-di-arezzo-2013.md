@@ -1,0 +1,21 @@
+---
+title: I Grandi appuntamenti del Festival della Musica di Arezzo 2013
+author: Redazione
+type: post
+date: 2013-11-17T23:00:00+00:00
+url: /?p=2925
+post_views_count:
+  - 11
+  - 11
+categories:
+  - CULTURA E SPETTACOLO
+
+---
+In un&rsquo;epoca in cui il concetto di globalizzazione entra sempre pi&ugrave; prepotentemente in ogni aspetto della vita quotidiana, &egrave; inevitabile come anche la "contaminazione", quale mezzo di scontro/incontro tra culture e modelli espressivi diversi, assuma un ruolo centrale nello stimolare la creazione artistica, facendo di questa l&#8217;espressione sempre rinnovata che proprio dallo scambio e/o fusione di linguaggi diversi trae linfa vitale. Con questo spirito aperto al confronto multiculturale, anche quest&#8217;anno "I Grandi appuntamenti del Festival della Musica" di Arezzo (8 novembre &#8211; 9 dicembre 2013), sotto la direzione artistica di Giulia Ambrosio, offre un cartellone ricco di iniziative e concerti all&#8217;altezza delle aspettative, in cui accanto all&#8217;espressione musicale pi&ugrave; tradizionale si accompagnano momenti dedicati al jazz, alla musica popolare e a quella etnica in un caleidoscopico e multiforme programma in cui la contaminazione, la sperimentazione e l&#8217;innovazione costituiscono le parole d&#8217;ordine. In questo stimolante contesto, lo spettacolo "Who is afraid of Baroque?" del gruppo Soqquadro Italiano, tenutosi il 15 novembre al Teatro Virginian, non poteva trovare una collocazione migliore. 
+
+Di recentissima formazione, Soqquadro Italiano nasce dal sodalizio artistico di&nbsp; Vincenzo Capezzuto e Claudio Borgianni, due personalit&agrave; poliedriche che con l&#8217;avvallo di alcuni musicisti &ndash; Simone Vallerotonda alla tiorba e chitarra barocca, Ludovico Minasi al violoncello barocco, Marco Muzzati al salterio e percussioni &ndash; hanno dato vita a una originale rivisitazione del barocco musicale seicentesco; un periodo della storia musicale dalle varie sfaccettature che ha visto affacciarsi nuovi generi quali la cantata e l&#8217;opera &ndash; generatisi dal "recitar cantando" &#8211; e dove il linguaggio strumentale come quello vocale si sono fatti portavoce dell&#8217;"affetto" musicale in un connubio straordinario tra testo e musica. 
+
+A tutto ci&ograve; si ispira l&#8217;interessantissimo spettacolo, ideato da Borgianni e Capezzuto, che nell&#8217;unire il senso teatrale a musiche di raffinata bellezza, ricrea atmosfere senza tempo, in cui evidentemente la distanze temporali vengono abbattute con una naturalezza che nel "gesto" vocale di Capezzuto, dalla voce unica e non categorizzabile, trova la sua massima espressione. Una voce, quella di Capezzuto, in un certo senso "contaminata", dove lungi da schemi preconcetti e classificatori, si pone in tutta la sua originale polivalenza grazie al suo colore e alla sua capacit&agrave; di infondere una personalissima impronta ad ogni brano eseguito. Lo spettacolo si &egrave; sviluppato lungo una carrellata di brani che hanno visto autori della tradizione colta come Stradella, Piccinini, Rossi, Mazzocchi, alternarsi, senza soluzione di continuit&agrave;, a brani della tradizione popolare seicentesca, &#8211; tra questi ultimi, spettacolari le esecuzioni della Canzone del Guarracino e la Tarantella alla Carpinese &ndash; durante i quali, a sorpresa, sono intervenuti anche gli strumentisti nell&#8217;inaspettata veste di attori. Geniale la visione di Soqquadro Italiano nell&#8217;offrirci uno spaccato trasversale sul Seicento musicale con uno spettacolo dove tutto pu&ograve; accadere e dove opposte categorie si incontrano, "colto" e "popolare", "moderno" e "antico", in una originalissima riattualizzazione di uno dei pi&ugrave; felici momenti della nostra tradizione musicale. Una performance, dunque, riuscitissima dove il teatro si "musicalizza" e la musica si "teatralizza" grazie anche alla presenza scenica di tutti i bravissimi musicisti che interagiscono appassionatamente e con grande disinvoltura. 
+
+Franco Bruni  
+&nbsp;

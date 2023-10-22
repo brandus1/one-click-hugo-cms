@@ -1,0 +1,73 @@
+---
+title: Cambia la PA, cambia il Paese
+author: Redazione
+type: post
+date: 2016-05-18T09:23:29+00:00
+url: /?p=4518
+slide_template:
+  - default
+  - default
+vc_teaser:
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+td_post_theme_settings:
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_4";}'
+  - 'a:1:{s:16:"td_post_template";s:17:"single_template_4";}'
+post_views_count:
+  - 17
+  - 17
+categories:
+  - ATTUALITÀ
+tags:
+  - amministrazione
+  - Carlo Mochi Sismondi
+  - ForumPA
+  - Gianni Dominici
+  - innovazione
+  - maggio
+  - news
+  - Palazzo dei Congressi
+  - politica
+  - Roma
+
+---
+Dal 24 al 26 maggio al Palazzo dei Congressi di Roma una tre giorni di incontri, convegni e laboratori durante la 27^ edizione della tavola rotonda sull&#8217;innovazione nella pubblica amministrazione e nei sistemi territoriali
+
+Di cosa stiamo parlando se diciamo Forum PA? Si tratta di una società specializzata in pubbliche relazioni e comunicazione istituzionale che si pone l&#8217;obiettivo di promuovere e facilitare l&#8217;incontro/confronto tra le pubbliche amministrazioni, le imprese e i cittadini sui temi fondamentali dell&#8217;innovazione tramite l&#8217;utilizzo di metodologie e strumenti innovativi di sensibilizzazione, comunicazione e partecipazione.  
+Anche l&#8217;edizione 2016 di Forum PA costituisce un vero e proprio percorso di condivisione, confronto, ricerca ed elaborazione insieme ai responsabili delle PA e ai player coinvolti nel processo di trasformazione digitale, per sostenere il passaggio dalla fase della regolamentazione a quella dell&#8217;execution. Un ciclo di incontri tematici che vedrà amministrazioni e imprese confrontarsi sul modo in cui l&#8217;innovazione tecnologica si diffonde nella Pa.  
+Il cuore dell&#8217;attività di Forum Pa è l&#8217;Expo di maggio a Roma, che da 27 anni si conferma il punto di riferimento sull&#8217;innovazione e modernizzazione del sistema pubblico italiano.
+
+Abbiamo parlato di questo importante appuntamento con Carlo Mochi Sismondi, Presidente di Forum PA, e con Gianni Dominici, Direttore Generale della Società.
+
+**Carlo Mochi Sismondi,**  
+**Presidente di FPA<img decoding="async" loading="lazy" class="size-medium wp-image-4519 alignright" src="https://progressonline.it/wp-content/uploads/5398_foto1_mochi-300x200.jpg" alt="5398_foto1_mochi" width="300" height="200" />**
+
+**Quali novità ha in serbo l&#8217;edizione 2016 del FORUM PA e quali saranno i punti cardine della ricca programmazione di seminari, tavoli di lavoro, Academy, “non-conferenze” e laboratori?**
+
+_Il PAese che cambia cambia la PA, che cambia il PAese, che cambia la PA…. un circolo questo che può essere virtuoso o vizioso: questa circolare interdipendenza tra lo sviluppo equo e sostenibile del Paese e la trasformazione della PA è alla base del FORUM PA 2016, in programma dal 24 al 26 maggio al Palazzo dei Congressi di Roma. Interdipendenza non è dipendenza servile dell’amministrazione dalla politica, ma non è neanche evanescente indipendenza che nasconda irresponsabilità sui risultati dell’azione pubblica verso la qualità della vita dei cittadini e delle imprese. Interdipendenza vuol dire che i quattro vertici del nostro quadrato &#8211; politica, amministrazione, imprese e cittadini &#8211; debbono collaborare condividendo la sicurezza che il comportamento di ciascuna parte influisca sia sulle altre sia sul sistema complessivo. Insomma… nessuno si salva da solo._  
+_In questo scenario FORUM PA 2016 descriverà il percorso verso una amministrazione agile per una crescita inclusiva, così come dettano gli ultimi impegni dei Paesi OCSE._  
+_Questo processo evolutivo è declinato nel nostro lavoro in tre aree principali, a cui si riferiranno gli oltre centocinquanta eventi che vanno dai momenti di lavoro collaborativo di poche decine di persone ai grandi convegni di mille partecipanti:_  
+_Cambia la PA, cambia il Paese: nuovi modelli di amministrazione per una società che cambia._  
+ _“Lo Stato Innovatore”: una nuova politica economica ed industriale per l’innovazione, lo sviluppo, l’occupazione._  
+_Digital first: costruire una vera cittadinanza digitale per cittadini e imprese. Ciascuno di questi macrotemi, necessariamente “interdipendenti”, darà origine, nei tre giorni della manifestazione, ad uno o più convegni di scenario alla presenza dei vertici di Governo e/o di grandi “maitre à penser” (il primo vedrà, ad esempio, la lectio magistralis di Jeremy Rifkin), seguiranno poi convegni tematici che hanno l’obiettivo di un confronto tra gli stakeholders sullo stato di attuazione dei singoli progetti di cambiamento e sulle condizioni per una più veloce fase di “execution”. Infine, su ciascuna area si svolgeranno incontri specifici, i “focus”, per far conoscere le migliori esperienze e momenti formativi, la “Academy”, per dare ai dipendenti pubblici quella necessaria informazione e formazione (gratuita) che tanto cercano e così poco trovano._
+
+**La legge delega di riforma della PA approvata lo scorso agosto e promossa dal Ministro Madia ha cambiato in qualche modo il rapporto tra digitale e amministrazione pubblica?**
+
+_Certamente dedicare il primo articolo della legge delega alla “cittadinanza digitale” ha messo in grande evidenza il ruolo che le tecnologie possono avere per avvicinare i cittadini alle istituzioni, per fornire servizi più vicini e veloci, per promuovere strumenti efficaci di partecipazione e di coinvolgimento._  
+_Il piano triennale dell’AgID ha poi declinato questi principi delineando un sistema di infrastrutture immateriali composte da regole, protocolli, nuovi paradigmi tecnologici. Abbiamo così lo SPID, sistema pubblico di identità digitale, la nuova Anagrafe Nazionale della Popolazione Residente, il sistema dei pagamenti elettronici PagoPA , il sistema dei documenti e delle notifiche, il nuovo design dei servizi pubblici. Un panorama d’innovazione quindi ampio ed organico che deve però cambiare i comportamenti delle persone. Sarà quindi necessario un accompagnamento attento e continuo per ottenere i risultati sperati._
+
+**Una ricca sezione di questa edizione è collegata ai temi e all’iniziativa “Cantieri della PA Digitale”. Di cosa si tratta?**  
+_I Cantieri della PA digitale sono dieci aree di lavoro multicanale, dedicate ciascuna ad un tema specifico, verticale o orizzontale, del processo di digitalizzazione dell’Amministrazione. Obiettivo dei CantieriPA è monitorare, stimolare e favorire l’effettiva execution dei progetti d’innovazione._  
+_Primo obiettivo dei CantieriPA è costruire una “mappatura” delle migliori esperienze, dei soggetti fisici ed istituzionali protagonisti, delle principali iniziative in corso e delle risorse che per esse sono disponibili. Si tratta di tracciare una carta dell’esistente in modo da poter orientare le iniziative future, far emergere ostacoli e strumenti per superarli, proporre alleanze e collaborazioni, verificare le risorse disponibili e giudicarne la congruità con gli obiettivi, analizzare gli strumenti di procurement pubblico a disposizione e immaginarne l’uso più confacente ai risultati da raggiungere._  
+_Secondo e altrettanto importante obiettivo è stilare “raccomandazioni”: in un momento di costruzione delle regole, come quello attuale, e di profonde riforme di tutto il settore pubblico è essenziale poter contare sul consiglio e sul lavoro collaborativo dei protagonisti pubblici e privati. Le riunioni di ogni cantiere, lungo tutto il 2016, porteranno a fine anno alla redazione di un documento di “advocacy” rivolto ai decisori politici con indicazioni puntuali di norme o, meglio, di linee guida per togliere i sassolini che possono bloccare gli ingranaggi dell’effettiva execution delle varie iniziative sopra elencate._  
+**Gianni Dominici,**  
+**Direttore generale di FPA<img decoding="async" loading="lazy" class="size-medium wp-image-4520 alignleft" src="https://progressonline.it/wp-content/uploads/Cattura-1-282x300.jpg" alt="Cattura" width="282" height="300" />**  
+**Il keynote di apertura della manifestazione di quest’anno sarà tenuto da Jeremy Rifkin, considerato uno dei &#8220;profeti&#8221; del nuovo ordine economico. Condivisione, esperienze peer to peer e approccio social business, i temi principali. Come influenzeranno la PA del futuro?**
+
+_Tutti questi temi più che il futuro sono già il nostro presente, solo che molto spesso chi ci governa e chi ci amministra non sa o non vuole prenderne atto. Nella Pubblica Amministrazione sono ancora radicati vecchi modelli ormai superati all’interno della società, modelli che nessuna legge di riforma è sufficiente a scardinare se non accompagnata da un cambiamento anche culturale. Per questo un motto che noi di FPA amiamo spesso ripetere è “quale PA vogliamo e per quale Paese”, perché se la società cambia anche la PA deve cambiare, o meglio deve accompagnare questo cambiamento. È necessario immaginare, sperimentare e introdurre nuovi modelli operativi in cui i cittadini e le imprese siano considerati non più solo portatori di bisogni, ma anche di soluzioni e di competenze. L’appuntamento annuale di FORUM PA diventa quindi l’occasione per dare spazio all’analisi e al confronto su questi temi ed è in questo contesto che si inserisce la presenza di Jeremy Rifkin. A partire dal suo ultimo libro “La società a costo marginale zero”, ci confronteremo con lui sui temi inerenti l’innovazione, l’economia collaborativa, il ruolo dell’amministrazione pubblica in una società ibrida in cui la produzione sarà in buona parte diffusa e basata sul “Commons collaborativo”. Vogliamo in questo modo alimentare nel corso dell’evento, momenti di “pensiero alto”, di riflessione e approfondimento su quale debba essere la forma e la sostanza di una pubblica amministrazione in grado di cogliere le opportunità offerte da nuove tecnologie e nuovi approcci. In questo contesto l’economia della condivisione rappresenta, infatti, un’occasione importante e prefigura nuove forme di cittadinanza che stravolgono gli approcci attuali. L’economia della condivisione è incompatibile con la prassi della PA burocratica e verticale che segue un approccio monopolistico per quanto riguarda l’erogazione dei servizi pubblici. L’esempio più eclatante è quello del trasporto pubblico urbano. Con il carsharing, il bikesharing, lo scootersharing, il ridesharing la mobilità si sta trasformando. E l’offerta sarà ancor più conveniente e completa quando, anche in questi settori, saranno rimossi gli ostacoli per le condivisioni peer to peer, tra pari. La PA deve non solo valorizzare questi apporti ma diventare esso stesso soggetto attivo nell’adozione della cultura della condivisione, creando le condizioni per la condivisione di beni e servizi tra enti pubblici volta ad eliminare gli sprechi e ad ottimizzare le risorse andando ad utilizzare e ottimizzare gli strumenti normativi già esistenti come le Unioni di Comuni e la gestione associata._
+
+**Forum PA, in collaborazione con Startupbusiness, la testata dedicata all’ecosistema startup del gruppo Digital360, e PoliHub, promuove anche quest&#8217;anno l’iniziativa “FORUM PA Call4Ideas 2016: Le startup per innovare la PA”. In cosa consiste questo progetto? **  
+_Abbiamo voluto replicare questa iniziativa che lo scorso anno ha riscosso un grande successo. L’obiettivo è individuare e supportare i progetti imprenditoriali più interessanti e innovativi che propongono tecnologie e soluzioni per la Pubblica Amministrazione. La Call &#8211; organizzata da FPA in collaborazione con Startupbusiness, la testata dedicata all’ecosistema startup del gruppo Digital360, PoliHub, l’incubatore del Politecnico di Milano, e Camera di Commercio Roma &#8211; si rivolge a gruppi di lavoro che stanno lavorando a prodotti/servizi (anche se ancora non costituiti come azienda), a startup avviate negli ultimi 6 anni e a progetti di ricerca di genesi pubblica o privata, italiani e dell’Unione europea. Lo scorso anno abbiamo raccolto oltre 100 candidature in un solo mese: un ottimo risultato, anche per la qualità dei progetti arrivati, tant’è vero che la scelta fu molto difficile e selezionammo alla fine 12 vincitori invece di 10. Anche quest’anno ci auguriamo di riuscire nel nostro obiettivo, che è soprattutto quello di far parlare due mondi, quello delle imprese innovative e della PA, che di solito non dialogano tra loro, affinché nascano nuove opportunità per lo sviluppo dei territori. Selezioneremo 12 progetti che verranno presentati a FORUM PA 2016 all’interno di un evento dedicato e potranno accedere ad uno “spazio networking” all&#8217;interno della Manifestazione dove incontrare i potenziali buyer o investitori. Inoltre FPA, Startupbusiness e PoliHub si riservano di scegliere, tra i 12 selezionati, una rosa di soggetti che potranno: accedere a un periodo di incubazione gratuito e della durata di tre mesi presso il PoliHub; portare il proprio progetto all’attenzione dei canali di comunicazione grazie alle attività svolte da FPA, PoliHub, Startupbusiness, EconomyUp e le testate del gruppo Digital360; essere coinvolti come “partner” nei progetti di innovazione portati avanti da FPA durante l’anno._
+
+**Com’è cambiata la manifestazione in questi anni e che tipo di supporto ritenete di dare alle pubbliche amministrazioni?**  
+_Già da qualche anno siamo passati dal concetto di Fiera a quello di Manifestazione, mettendo al centro dei tre giorni importanti convegni di scenario, ma anche migliaia di ore di formazione e aggiornamento gratuito  per gli operatori della PA. In particolare organizziamo in collaborazione con validissimi partner un vero e proprio programma formativo che abbiamo chiamato “FORUM PA Academy”: sessioni della durata di 50 minuti l’una, in uno spazio dedicato, a partecipazione gratuita e con rilascio di attestato. Un’occasione imperdibile per i nostri dipendenti pubblici, i quali per via della dissennata politica dei tagli lineari non hanno facile accesso a strumenti di questo tipo: mediamente un funzionario pubblico italiano ha accesso a mezza giornata di formazione all’anno contro le 7-8 dei colleghi francesi o inglesi. Una situazione critica, perché senza un processo di empowerment l’innovazione rischia di essere vissuta come un ulteriore adempimento e non come un’occasione di crescita individuale e collettiva._

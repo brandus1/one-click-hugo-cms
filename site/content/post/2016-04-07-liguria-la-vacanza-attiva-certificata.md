@@ -1,0 +1,103 @@
+---
+title: 'Liguria: la vacanza attiva certificata'
+author: Redazione
+type: post
+date: 2016-04-06T22:00:00+00:00
+url: /?p=4003
+post_views_count:
+  - 18
+  - 18
+slide_template:
+  - default
+  - default
+vc_teaser:
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+  - 'a:2:{s:4:"data";s:115:"[{"name":"title","link":"post"},{"name":"image","image":"featured","link":"none"},{"name":"text","mode":"excerpt"}]";s:7:"bgcolor";s:0:"";}'
+categories:
+  - VIAGGI
+
+---
+<div>
+  Nasce il sito “Be Active Liguria” www.beactiveliguria.it, risultato di un lavoro svolto con gli operatori liguri negli ultimi due anni. Non un semplice sito web, ma la vetrina di un insieme di servizi dedicati al trekker e al biker per organizzare una
+</div>
+
+<div>
+  vacanza attiva in Liguria con oltre 200 itinerari.
+</div>
+
+<div>
+  Ognuna delle 45 strutture ricettive col marchio di qualità bike & hike &#8211; già presenti sul sito con offerte specifiche &#8211; corrisponde ai requisiti fissati dalla Regione Liguria nel disciplinare che stabilisce i criteri di certificazione delle strutture ricettive. Un modo perfetto per offrire garanzie e proposte per vacanze in sicurezza ai tanti appassionati, consapevoli che la Liguria è l’approdo ideale per chi cerca una vacanza all’aria aperta da godere 365 giorni all’anno.
+</div>
+
+<div>
+  Be Active Liguria fa dialogare tra loro il territorio e i servizi turistici del settore. L’Agenzia regionale di promozione turistica “In Liguria” ha lavorato a lungo per arrivare a offrire la mappa virtuale di un prodotto turistico costruito con gli operatori. Sono 45 le strutture che gli sportivi troveranno localizzate nei punti strategici lungo gli itinerari e che garantiscono qualità dei servizi
+</div>
+
+<div>
+  specifici: 8 sono in provincia di Genova, 11 nell’imperiese, 6 nello spezzino e 17 in provincia di Savona, di cui 9 a Finale Ligure, “Eldorado” della mountain bike e del free climbing.
+</div>
+
+<div>
+  Proprio a Finalborgo era stato costituito il gruppo di lavoro tra operatori e Agenzia “in Liguria” che ha permesso di arrivare al risultato, costruire cioè un prodotto turistico e sviluppare destinazioni di vacanza specializzate per accogliere il turista sportivo. Da qui è scaturito anche il “Social Media Team Diffuso” che vede il coinvolgimento di strutture ricettive, associazioni,
+</div>
+
+<div>
+  guide e parchi naturali per la gestione della pagina Facebook “Be Active Liguria”: i contenuti vengono creati direttamente dal territorio per informare l’utente sulle ultime novità, narrare le esperienze uniche che si possono vivere in Liguria e arricchire così di valore aggiunto la comunicazione.
+</div>
+
+<div>
+  Grazie al lavoro fatto “dal basso”, cioè dagli albergatori locali e dalle associazioni che si sono costituite per animare il territorio, pulire i sentieri, offrire servizi di guiding e proporre offerta turistica specializzata e qualificata, Finale Ligure si è attestata come “Mecca” della mountain bike in tutta Europa e nel mondo. Sede di importanti gare sportive come la 24h
+</div>
+
+<div>
+  di Finale e la Super Enduro World Series, che vedono la partecipazione di atleti e appassionati da tutto il mondo.
+</div>
+
+<div>
+  A confermare che questo segmento turistico è fondamentale per lo sviluppo del territorio, vale la pena di ricordare che Finale Ligure registra 1 milione di arrivi all’anno di cui più di 300mila di amanti della mountain bike. La zona di Sanremo si sta qualificando come secondo polo e quella del Parco di Portofino sta lavorando bene proponendo escursioni guidate, mentre nella zona di Levanto stanno puntando sull’e-bike (bici elettriche con pedalata assistita) per gustare le escursioni sui ripidi colli con vista mare totale.
+</div>
+
+<div>
+  Il sito propone più di 200 itinerari con tracce GPX scaricabili su supporto GPS o su smartphone, con dati altimetrici, dislivello, tempo di percorrenza, intensità dello sforzo richiesto e stagionalità del tracciato. Accanto al dato tecnico, viene proposta all’utente una scelta fatta in base ad altri parametri per godere appieno del territorio e di quanto può offrire.
+</div>
+
+<div>
+  Nella sezione “Consigli”, troverete i racconti dei nostri insider, esperti biker e guide ambientali escursionistiche, che vi guideranno alla scoperta della Liguria per fare un’esperienza unica. Gli itinerari, infatti, possono essere scelti anche in base alle diverse classificazioni “natura”, “family”, “gourmet” e “cultura”. Una vera guida alla ricerca delle particolarità della regione
+</div>
+
+<div>
+  mentre si pratica la propria attività sportiva preferita.
+</div>
+
+<div>
+  Nella sezione dedicata ai camminatori sono stati evidenziati due “Percorsi Speciali”. Più che itinerari, sono viaggi di scoperta della Liguria. L’Alta Via dei Monti Liguri e oggi anche il Sentiero Liguria attraversano tutta la regione svelando, tappa dopo tappa, la più grande varietà di paesaggi, colori, profumi e tradizioni. Solo chi ha percorso questi sentieri speciali può
+</div>
+
+<div>
+  dire di conoscere davvero la Liguria.
+</div>
+
+<div>
+  L’Alta Via si snoda in 43 tappe sul crinale appenninico, da Sarzana a Ventimiglia, sospese tra cielo e mare, con la vista delle cime innevate da un lato e il luccichio del mare dall’altro. Il Sentiero Liguria è stato studiato per chi vuol fare indigestione del blu del mare in 29 tappe; è l’equivalente dell’Alta Via, ma direttamente sulla costa ligure. Avete solo l’imbarazzo della scelta.
+</div>
+
+<div>
+  La Liguria vi aspetta per allenare la vostra voglia di benessere sportivo 365 giorni all’anno.
+</div>
+
+<div>
+</div>
+
+<div>
+  Per ulteriori informazioni:
+</div>
+
+<div>
+  <a href="https://www.beactiveliguria.it">www.beactiveliguria.it</a>
+</div>
+
+<div>
+  <a href="https://www.turismoinliguria.it">www.turismoinliguria.it</a>
+</div>
+
+&nbsp;
